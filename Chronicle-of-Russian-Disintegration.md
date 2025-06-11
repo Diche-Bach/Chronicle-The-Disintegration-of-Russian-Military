@@ -81,3 +81,5 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 [A Russian commander is punishing a group of Russian soldiers who developed addictions to alcohol during their duty on the frontlines](https://www.reddit.com/r/UkraineWarVideoReport/comments/15dgn1u/a_russian_commander_is_punishing_a_group_of/)
 
 [A Russian Problem: Losses Are Outpacing Production](https://www.reddit.com/r/UkraineWarVideoReport/comments/1id4191/a_russian_problem_losses_are_outpacing_production/)
+
+[NSFW: Russian commander beats one of his subordinates with a metal pipe as a punishment for running away. JUNE 2025](https://www.reddit.com/r/UkraineInvasionVideos/comments/1l8sxpf/nsfw_russian_commander_beats_one_of_his/)
