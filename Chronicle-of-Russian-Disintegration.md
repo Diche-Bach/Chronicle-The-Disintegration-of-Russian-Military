@@ -85,3 +85,5 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 [NSFW: Russian commander beats one of his subordinates with a metal pipe as a punishment for running away. JUNE 2025](https://www.reddit.com/r/UkraineInvasionVideos/comments/1l8sxpf/nsfw_russian_commander_beats_one_of_his/)
 
 [A russian surrendered to an Ukrainian drone, and was given water and instructions, on his way to UA lines, russian forces killed him with their drones.](https://www.reddit.com/r/DroneCombat/comments/1l9shr6/a_russian_surrendered_to_an_ukrainian_drone_and/)
+
+[Tension & Antagonism Among Russian Crews in Dinghy's at Night](https://www.reddit.com/r/UkraineWarVideoReport/comments/1lc6obd/russian_special_forces_at_work_published_15062025/)
