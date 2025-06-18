@@ -87,3 +87,6 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 [A russian surrendered to an Ukrainian drone, and was given water and instructions, on his way to UA lines, russian forces killed him with their drones.](https://www.reddit.com/r/DroneCombat/comments/1l9shr6/a_russian_surrendered_to_an_ukrainian_drone_and/)
 
 [Tension & Antagonism Among Russian Crews in Dinghy's at Night](https://www.reddit.com/r/UkraineWarVideoReport/comments/1lc6obd/russian_special_forces_at_work_published_15062025/)
+
+[“You’ll go on the assault tomorrow and die there” — video showing abuse of a deserter in the Russian army](https://www.reddit.com/r/UkraineWarVideoReport/comments/1legd4d/youll_go_on_the_assault_tomorrow_and_die_there/)
+
