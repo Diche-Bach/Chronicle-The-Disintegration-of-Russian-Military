@@ -90,3 +90,5 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 
 [“You’ll go on the assault tomorrow and die there” — video showing abuse of a deserter in the Russian army](https://www.reddit.com/r/UkraineWarVideoReport/comments/1legd4d/youll_go_on_the_assault_tomorrow_and_die_there/)
 
+20 June 2025: Received the following link today.
+[Cannibalism Among Undersupplied Russian Troops Raises Alarm in Ukraine](https://kyivinsider.com/cannibalism-among-undersupplied-russian-troops-raises-alarm-in-ukraine/)
