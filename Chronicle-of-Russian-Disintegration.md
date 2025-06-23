@@ -92,3 +92,6 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 
 20 June 2025: Received the following link today.
 [Cannibalism Among Undersupplied Russian Troops Raises Alarm in Ukraine](https://kyivinsider.com/cannibalism-among-undersupplied-russian-troops-raises-alarm-in-ukraine/)
+
+23 June 2025
+[Russian commander punishes two of his subordinates because they tried to flee and left their position. June 2025](https://www.reddit.com/r/UkraineInvasionVideos/comments/1lispk4/russian_commander_punishes_two_of_his/)
