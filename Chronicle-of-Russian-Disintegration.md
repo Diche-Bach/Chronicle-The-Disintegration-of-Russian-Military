@@ -98,3 +98,6 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 
 24 June 2025
 [A Russian soldier Severely Wounded by an Unknown Strike Uses His Rifle to Commit Suicide, Observed by a Ukrainian Drone from the 423rd UAV Battalion "Scythian Griffins" (Published on June 23, 2025)](https://www.reddit.com/r/DroneCombat/comments/1lizscl/a_russian_soldier_severely_wounded_by_an_unknown/)
+
+26 June 2025
+[Russian Soldier records his own su*cide by Rifle, but fails and isnt instant.](https://www.reddit.com/r/UkraineWarVideoReport/comments/1ll99mw/russian_soldier_records_his_own_sucide_by_rifle/)
