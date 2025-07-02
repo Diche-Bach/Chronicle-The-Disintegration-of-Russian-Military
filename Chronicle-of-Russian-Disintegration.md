@@ -105,4 +105,5 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 30 June 2025
 [Video by a Russian soldier (1st Slavic Brigade): they will be sent to assault while still injured and on crutches. June 2025](https://www.reddit.com/r/UkraineInvasionVideos/comments/1lnqm1i/a_russian_soldier_from_the_1st_slavic_brigade/)
 
-
+2 July 2025
+[Ukrainian drone drop on a Russian soldier who instantly takes his own life afterwards. June 2025](https://www.reddit.com/r/CombatFootage/comments/1lpvcxe/ukrainian_drone_drop_on_a_russian_soldier_who/)
