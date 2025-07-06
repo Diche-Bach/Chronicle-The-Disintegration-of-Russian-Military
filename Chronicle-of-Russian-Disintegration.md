@@ -107,3 +107,6 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 
 2 July 2025
 [Ukrainian drone drop on a Russian soldier who instantly takes his own life afterwards. June 2025](https://www.reddit.com/r/CombatFootage/comments/1lpvcxe/ukrainian_drone_drop_on_a_russian_soldier_who/)
+
+6 July 2025
+[A Russian soldier somewhere in Donbas is frustrated when their rifle fails to work](https://www.reddit.com/r/UkraineWarVideoReport/comments/1lss01t/a_russian_soldier_somewhere_in_donbas_is/)
