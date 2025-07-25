@@ -112,3 +112,6 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 [A Russian soldier somewhere in Donbas is frustrated when their rifle fails to work](https://www.reddit.com/r/UkraineWarVideoReport/comments/1lss01t/a_russian_soldier_somewhere_in_donbas_is/)
 
 17 July 2025 [A wounded russian who has surrendered to a Ukrainian drone, on his way to UA lines he collapses and starts begging for help, he is then summarily executed by a fellow russian with a shot to the head. (NSFW)](https://www.reddit.com/r/DroneCombat/comments/1m2kl2j/a_wounded_russian_who_has_surrendered_to_a/)
+
+25 July 2025 [Russian soldier pushing out injured comrade from the dughout](https://www.reddit.com/r/UkraineWarVideoReport/comments/1m93a67/russian_soldier_pushing_out_injured_comrade_from/)
+
