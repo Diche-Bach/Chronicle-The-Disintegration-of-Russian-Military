@@ -115,3 +115,4 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 
 25 July 2025 [Russian soldier pushing out injured comrade from the dughout](https://www.reddit.com/r/UkraineWarVideoReport/comments/1m93a67/russian_soldier_pushing_out_injured_comrade_from/)
 
+27 July 2025 [A wounded russian is mercy killed by a comrade, who bashes his head in with a rifle stock.](https://www.reddit.com/r/DroneCombat/comments/1m9pipj/a_wounded_russian_is_mercy_killed_by_a_comrade/)
