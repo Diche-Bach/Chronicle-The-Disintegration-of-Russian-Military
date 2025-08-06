@@ -120,3 +120,5 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 [After being wounded by a drone-dropped grenade, a russian invader killed himself with his own grenade. The strike was carried out by Ukraine’s 414th UAV Brigade, 'Birds of Magyar.' The video was posted on July 27, 2025](https://www.reddit.com/r/DroneCombat/comments/1mauqxw/after_being_wounded_by_a_dronedropped_grenade_a/)
 
 2 August 2025 [Russian soldier suddenly realized how useless the war is (Eng.subs)](https://www.reddit.com/r/UkraineWarVideoReport/comments/1mfj38v/russian_soldier_suddenly_realized_how_useless_the/)
+
+6 Aug 2025 [A russian soldier was subjected to electroshock torture as punishment for stealing from his comrades](https://www.reddit.com/r/UkraineWarVideoReport/comments/1mj0xz0/a_russian_soldier_was_subjected_to_electroshock/)
