@@ -122,3 +122,6 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 2 August 2025 [Russian soldier suddenly realized how useless the war is (Eng.subs)](https://www.reddit.com/r/UkraineWarVideoReport/comments/1mfj38v/russian_soldier_suddenly_realized_how_useless_the/)
 
 6 Aug 2025 [A russian soldier was subjected to electroshock torture as punishment for stealing from his comrades](https://www.reddit.com/r/UkraineWarVideoReport/comments/1mj0xz0/a_russian_soldier_was_subjected_to_electroshock/)
+
+8 Aug 2025 [A russian invader killed himself with his own grenade while flipping off a reconnaissance drone from the 'Sky Fury' unit of Ukraine’s 54th Mechanized Brigade](https://www.reddit.com/r/DroneCombat/comments/1ml5uvt/a_russian_invader_killed_himself_with_his_own/)
+
