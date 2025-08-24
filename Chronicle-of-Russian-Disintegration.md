@@ -126,3 +126,5 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 8 Aug 2025 [A russian invader killed himself with his own grenade while flipping off a reconnaissance drone from the 'Sky Fury' unit of Ukraine’s 54th Mechanized Brigade](https://www.reddit.com/r/DroneCombat/comments/1ml5uvt/a_russian_invader_killed_himself_with_his_own/)
 
 21 Aug 2025 [Beating of a russian soldier as punishment for drinking](https://www.reddit.com/r/UkraineInvasionVideos/comments/1mwakg5/beating_of_a_russian_soldier_as_punishment_for/)
+
+24 Aug 2025 [Russian soldier commit suicide after being hit by an FPV drone of the 414th "Birds of Magyar" UAS Brigade, 24.08.25FPV/ Kamikaze/ Loitering (v.redd.it)](https://www.reddit.com/r/DroneCombat/comments/1mz1j24/russian_soldier_commit_suicide_after_being_hit_by/)
