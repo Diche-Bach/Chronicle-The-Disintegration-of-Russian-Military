@@ -115,6 +115,14 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 
 25 July 2025 [Russian soldier pushing out injured comrade from the dughout](https://www.reddit.com/r/UkraineWarVideoReport/comments/1m93a67/russian_soldier_pushing_out_injured_comrade_from/)
 
+The largest country on Earth, blessed with vast natural resources, could easily sustain a broad middle class. Instead, under the rule of cruel, psychopathic, kleptocratic elites—and above all, the megalomaniac obsession with restoring the Soviet empire—Russia sends peasants like this man to die crawling alone through the fields of a peaceful neighbor it invaded.
+
+He knew the truth instantly: a serious wound on the battlefield meant death. Whether he was the lone survivor of a failed assault, a scattered infiltrator, or simply abandoned, the result was the same. Medevac was impossible. Even had his comrades been nearby, the chance of rescue was close to zero. After a hard life as a modern-day serf, he made his last calculation the moment the Ukrainian FPV struck: check out quickly, or endure a slow agonizing death abandoned in foreign soil. He chose the gun.
+
+What does it say about a regime that treats its own soldiers with such contempt—sending them on fringe, under-supported missions where serious injury equals either suicide or lingering agony?
+
+This is the horror Western citizenry and leadership must fully grasp. Ukraine must not only survive, it must prevail. If Putin’s regime is not so thoroughly defeated that it provokes national upheaval—fragmentation or true reform—then even when this particular war ends, Russia will remain what it has become: a persistent threat to humanity.
+
 27 July 2025 [A wounded russian is mercy killed by a comrade, who bashes his head in with a rifle stock.](https://www.reddit.com/r/DroneCombat/comments/1m9pipj/a_wounded_russian_is_mercy_killed_by_a_comrade/)
 
 [After being wounded by a drone-dropped grenade, a russian invader killed himself with his own grenade. The strike was carried out by Ukraine’s 414th UAV Brigade, 'Birds of Magyar.' The video was posted on July 27, 2025](https://www.reddit.com/r/DroneCombat/comments/1mauqxw/after_being_wounded_by_a_dronedropped_grenade_a/)
