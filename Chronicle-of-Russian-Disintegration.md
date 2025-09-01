@@ -136,3 +136,5 @@ This is the horror Western citizenry and leadership must fully grasp. Ukraine mu
 21 Aug 2025 [Beating of a russian soldier as punishment for drinking](https://www.reddit.com/r/UkraineInvasionVideos/comments/1mwakg5/beating_of_a_russian_soldier_as_punishment_for/)
 
 24 Aug 2025 [Russian soldier commit suicide after being hit by an FPV drone of the 414th "Birds of Magyar" UAS Brigade, 24.08.25FPV/ Kamikaze/ Loitering (v.redd.it)](https://www.reddit.com/r/DroneCombat/comments/1mz1j24/russian_soldier_commit_suicide_after_being_hit_by/)
+
+1 Sept 2025 [Punishment in Russian army for the soldier who has called the hotline and told about poor conditions of service (NSFW)](https://www.reddit.com/r/UkraineWarVideoReport/comments/1n53dur/punishment_in_russian_army_for_the_soldier_who/)
