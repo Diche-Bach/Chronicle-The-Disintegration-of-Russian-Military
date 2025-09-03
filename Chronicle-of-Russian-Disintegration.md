@@ -138,3 +138,15 @@ This is the horror Western citizenry and leadership must fully grasp. Ukraine mu
 24 Aug 2025 [Russian soldier commit suicide after being hit by an FPV drone of the 414th "Birds of Magyar" UAS Brigade, 24.08.25FPV/ Kamikaze/ Loitering (v.redd.it)](https://www.reddit.com/r/DroneCombat/comments/1mz1j24/russian_soldier_commit_suicide_after_being_hit_by/)
 
 1 Sept 2025 [Punishment in Russian army for the soldier who has called the hotline and told about poor conditions of service (NSFW)](https://www.reddit.com/r/UkraineWarVideoReport/comments/1n53dur/punishment_in_russian_army_for_the_soldier_who/)
+
+3 Sept 2025 the lack of discipline and order in Putin's horde is used against them: [Ukrainian Soldier of 425th OSHP "Skelya" pretended to be one of the Russians, and then at the right moment he eliminated them](https://www.reddit.com/r/DroneCombat/comments/1n7b9r0/ukrainian_soldier_of_425th_oshp_skelya_pretended/)
+
+Over the past 3.7 years, Putin's horde has transformed into a hobo army, with a few scraps of professionalism sprinkled in. There are scores of videos of troops clearly ‘on duty’ in civilian clothing, with zero emblems or identifiers. In fact, since Crimea and Donbas, running around in non-standard, indistinguishable garb has been the norm.
+
+This lack of discipline, order, professionalism, and adherence to international standards of warfare is a double-edged sword. It allowed the Kremlin to pull off the ‘plausibly’ deniable Crimea takeover (which fooled no one except cowardly Western leaders). But it also makes even the simplest ruse highly credible to the average Russian trooper.
+
+At this point, it would seem that just having your patch tucked under your armor and speaking Russian with a believable accent is enough to dupe them. A grey area? Maybe. But Putin created that grey area back in spring 2014, and he’s been cultivating it for more than a decade.
+
+If the Kremlin wants a ‘level playing field,’ they’d need to multiply their discipline by an order of magnitude. Instead, they’re stuck with what they built: a shoddy-ass hobo army, easily tricked into extra casualties. That’s just a meager slice of justice.
+
+
