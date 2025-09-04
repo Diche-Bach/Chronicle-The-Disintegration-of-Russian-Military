@@ -151,3 +151,16 @@ If the Kremlin wants a ‘level playing field,’ they’d need to multiply thei
 
 3 Sept 2025 [A Russian sabotage group tried to stage a flag-raising in Kupyansk for propaganda footage, dressed as civilians, they snuck in through the ruins to film. Fighters from Ukraine's 10th Corps responded instantly: the group was eliminated and the tricolor seized. No stage for Russian lies. 03.09.2025](https://www.reddit.com/r/DroneCombat/comments/1n7q9hd/a_russian_sabotage_group_tried_to_stage_a/)
 
+The Russian text in the screenshot roughly translates to:
+
+“Today, a Russian guy with the call sign ‘Swede’ carried the flag in the heart of the Russian city of Kupiansk, on the square where once stood a monument to the great Russian philosopher V. I. Ulyanov (Lenin). Eternal bonds and spiritual staples.”
+
+Notes
+
+Kupiansk: A city in Kharkiv Oblast, Ukraine, occupied by Russia in 2022 and later liberated by Ukraine. Russia continues to claim it symbolically.
+
+Lenin reference: They call Lenin a “great Russian philosopher,” which is bizarrely propagandistic and intended as ideological nostalgia.
+
+“Spiritual staples” (духовные скрепы): A common Putin-era propaganda phrase, meant to convey the supposed eternal cultural glue of the Russian people.
+
+“Swede”: The soldier’s call sign, presented here as a patriotic symbol-bearer.
