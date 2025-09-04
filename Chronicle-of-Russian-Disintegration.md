@@ -149,4 +149,5 @@ At this point, it would seem that just having your patch tucked under your armor
 
 If the Kremlin wants a ‘level playing field,’ they’d need to multiply their discipline by an order of magnitude. Instead, they’re stuck with what they built: a shoddy-ass hobo army, easily tricked into extra casualties. That’s just a meager slice of justice.
 
+3 Sept 2025 [A Russian sabotage group tried to stage a flag-raising in Kupyansk for propaganda footage, dressed as civilians, they snuck in through the ruins to film. Fighters from Ukraine's 10th Corps responded instantly: the group was eliminated and the tricolor seized. No stage for Russian lies. 03.09.2025](https://www.reddit.com/r/DroneCombat/comments/1n7q9hd/a_russian_sabotage_group_tried_to_stage_a/)
 
