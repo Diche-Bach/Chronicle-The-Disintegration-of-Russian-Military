@@ -164,3 +164,34 @@ Lenin reference: They call Lenin a “great Russian philosopher,” which is biz
 “Spiritual staples” (духовные скрепы): A common Putin-era propaganda phrase, meant to convey the supposed eternal cultural glue of the Russian people.
 
 “Swede”: The soldier’s call sign, presented here as a patriotic symbol-bearer.
+
+5 Sept 2025 [A wounded russian invader, missing a leg, finished himself off by detonating a grenade in the Donetsk region](https://www.reddit.com/r/UkraineInvasionVideos/comments/1n9hvfc/a_wounded_russian_invader_missing_a_leg_finished/)
+A wounded Russian soldier self-detonates with a grenade after losing a leg in Donetsk region (August 2025).
+
+Soldier was equipped with modern kit (Crye Precision AVS-style plate carrier with crotch flap, standard fatigues, gloves, knee/elbow pads, helmet, modern backpack). Despite grievous wounds, blood loss appeared minimal, he retained full dexterity and consciousness, and his injuries were plausibly survivable. Nonetheless, he calmly armed grenades and killed himself within moments of being wounded.
+
+Commentary
+
+Not a throwaway conscript
+His equipment and composure suggest he was not one of the low-tier penal troops or hastily mobilized conscripts. He was almost certainly a trained, competent soldier — one of the “better” men Russia still has in its ranks.
+
+Psychology of despair
+The fact that he defaulted to suicide rather than attempting self-aid, surrender, or even waiting for comrades reflects something deeper. In Russian military culture — especially under Putin — soldiers are conditioned to see capture as worse than death, and to distrust the possibility of being rescued. This points to an institution that cannot guarantee basic battlefield care or cultivate will to live among its fighters.
+
+Breakdown of cohesion
+In professional militaries, a wounded soldier expects:
+
+Buddy aid (comrades applying tourniquets).
+
+Medevac system (casevac, then stabilization).
+
+Expectation of survival.
+The absence of that faith drives choices like this: grenading oneself instead of hoping for recovery.
+
+Implications for the Putin regime
+
+Even well-trained, well-equipped soldiers evidently do not believe their system will save them.
+
+Fear of abandonment, humiliation, or torture may be so strong that suicide feels natural.
+
+This corrodes morale: when even your “competent” troops pre-emptively kill themselves, the regime has lost the trust of its own fighters.
