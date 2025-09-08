@@ -171,3 +171,10 @@ A wounded Russian soldier self-detonates with a grenade after losing a leg in Do
 Soldier was equipped with modern kit (Crye Precision AVS-style plate carrier with crotch flap, standard fatigues, gloves, knee/elbow pads, helmet, modern backpack). Despite grievous wounds, blood loss appeared minimal, he retained full dexterity and consciousness, and his injuries appeared plausibly survivable. Nonetheless, he calmly armed a grenade and killed himself within moments of being wounded.
 
 His composure and gear suggest training and experience, yet his immediate reaction to a severe wound was self-destruction. This starkly illustrates a core rot in Putin’s army: soldiers so devoid of faith in rescue, leadership, or purpose that they prefer immediate death to enduring in hopes of surviving. A professional army fights to survive; a hobo army dies by its own hand.
+
+8 Sept 2025 [Punishment for drinking in the russian army](https://www.reddit.com/r/UkraineInvasionVideos/comments/1nbs67j/punishment_for_drinking_in_the_russian_army/)
+
+[Drunk Russian soldiers have shot each other](https://www.reddit.com/r/UkraineInvasionVideos/comments/1navkqx/drunk_russian_soldiers_have_shot_each_other/)
+
+[8-hour lines for gasoline in russia are becoming everyday life now](https://www.reddit.com/r/UkraineInvasionVideos/comments/1naw885/8hour_lines_for_gasoline_in_russia_are_becoming/)
+While this video is a bit different than most in this chronicle, I believe it is noteworthy as an indicationg of the disintegration of the Russian military in so far as the ability for Ukraine to hit gasoline refineries deep inside Russia (and thus cause these fuel shortages) reflects the over-stretched nature of Russian air defense.
