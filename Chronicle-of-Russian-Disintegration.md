@@ -178,3 +178,5 @@ His composure and gear suggest training and experience, yet his immediate reacti
 
 [8-hour lines for gasoline in russia are becoming everyday life now](https://www.reddit.com/r/UkraineInvasionVideos/comments/1naw885/8hour_lines_for_gasoline_in_russia_are_becoming/)
 While this video is a bit different than most in this chronicle, I believe it is noteworthy as an indicationg of the disintegration of the Russian military in so far as the ability for Ukraine to hit gasoline refineries deep inside Russia (and thus cause these fuel shortages) reflects the over-stretched nature of Russian air defense.
+
+[NSFW. A russian assault trooper loses both legs to a drone drop near Vovchansk. He appears to search for a turniquet, gives up and shoots himself in the head instead. Ares group, 57th Brigade. September 2025.](https://www.reddit.com/r/UkraineWarVideoReport/comments/1nbxqwo/nsfw_a_russian_assault_trooper_loses_both_legs_to/)
