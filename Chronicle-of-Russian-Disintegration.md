@@ -182,3 +182,5 @@ While this video is a bit different than most in this chronicle, I believe it is
 [NSFW. A russian assault trooper loses both legs to a drone drop near Vovchansk. He appears to search for a turniquet, gives up and shoots himself in the head instead. Ares group, 57th Brigade. September 2025.](https://www.reddit.com/r/UkraineWarVideoReport/comments/1nbxqwo/nsfw_a_russian_assault_trooper_loses_both_legs_to/)
 
 9 Sept 2025 [A Russian soldier watches a drone fly overhead, decides shooting him self is the way to go](https://www.reddit.com/r/DroneCombat/comments/1ncbcjg/a_russian_soldier_watches_a_drone_fly_overhead/)
+
+[A captured Russian soldier who surrendered to a drone talks about a guy from the same assault group who shot himself instead of surrendering](https://www.reddit.com/r/DroneCombat/comments/1ncdatf/a_captured_russian_soldier_who_surrendered_to_a/)
