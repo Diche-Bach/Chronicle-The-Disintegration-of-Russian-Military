@@ -184,3 +184,116 @@ While this video is a bit different than most in this chronicle, I believe it is
 9 Sept 2025 [A Russian soldier watches a drone fly overhead, decides shooting him self is the way to go](https://www.reddit.com/r/DroneCombat/comments/1ncbcjg/a_russian_soldier_watches_a_drone_fly_overhead/)
 
 [A captured Russian soldier who surrendered to a drone talks about a guy from the same assault group who shot himself instead of surrendering](https://www.reddit.com/r/DroneCombat/comments/1ncdatf/a_captured_russian_soldier_who_surrendered_to_a/)
+It appears that the captions in Ukrainian start as part of a longer sentence where the captured Russian soldier is describing how a series of Ukrainian FPV kamikaze drones attacked in succession. I do not read or write Ukrainian, but my trusty robot does . . . Below are the results of my efforts to capture and translate each of the captions in full, line by line.
+
+Whether because of idiomatic speech, context, incomplete closed-captions, or simply robot or human error, the language as initially translated appears fragmentary in the line-by-line translation.
+
+As the robot explains: "Colloquial compression: Ukrainian and Russian soldiers often speak in clipped, shorthand phrasing under stress. That’s why the captions come across fragmented."
+
+However, when I fed the entire sequence of translated lines back to the robot she returned the following coherent transcript:
+
+> Then kamikaze [drones] — one, two, three, four, five — we just dropped down.
+> They started firing incendiaries, explosions, everything… In short, nothing was left there.
+> Another pair [of us]… one was wounded, the second went to help him, but later I saw the video. The guys said what happened: he just shot himself.
+> 
+> Yes, by then it was already clear that we were simply being sent as cannon fodder — meat, straight into open ground.
+> Well, that’s it, there are no options.
+> It’s not today or tomorrow — you just die.
+
+-------
+
+Original line by line translations below
+
+"Потім камікадзе 1, 2, 3, 4, 5, ми просто…"
+
+"Then kamikaze [drones] 1, 2, 3, 4, 5, we just…"
+
+-=-=-
+
+"залягли"
+
+“we lay down” / “we dropped down” (to avoid fire, to take cover).
+
+-=-=-
+
+"Вони почали там запалювальні,"
+
+"They started [using] incendiaries there,"
+
+-=-=-
+
+"вибухи, що тільки,"
+
+"explosions, just… (or: explosions, only…)"
+
+-=-=-
+
+"коротше кажучи, там не було"
+
+“In short, there wasn’t any…” / “To put it briefly, there wasn’t…”
+
+-=-=-
+
+"Інший двійці... Одного поранило, о..."
+
+"Another pair... One was wounded, a..."
+
+-=-=-
+
+"2 пішов йому на допомогу, але й…"
+
+“The second one went to help him, but he also…”
+
+-=-=-
+
+"згодом я побачив"
+
+"Later I saw"
+
+-=-=-
+
+"video, the guys said that with them..."
+
+-=-=-
+
+“сталося, він просто застрелився.”
+
+“It happened, he just shot himself.”
+
+-=-=-
+
+"Так, це було вже зрозуміло, що нас"
+
+"Yes, it was already clear that we..."
+
+-=-=-
+
+"просто відправляють як гарматне"
+
+"they just send [us/them] like cannon fodder"
+
+-=-=-
+
+"м'ясо на відкриту територію."
+
+“meat into open ground.”
+
+-=-=-
+
+"Ну і як би все, варіантів немає."
+
+"Well, that’s basically it, there are no options."
+
+-=-=-
+
+"Це не сьогодні-завтра, ти просто"
+
+"It’s not today or tomorrow, you just…"
+
+-=-=-
+
+“загинеш.”
+
+“you will die.”
+
+-=-=-
