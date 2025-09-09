@@ -297,3 +297,5 @@ Original line by line translations below
 “you will die.”
 
 -=-=-
+[Ukrainian Azov’s 1st Corps, Rubizh Brigade, and the 82nd Air Assault Brigade captured 69 russian invaders on the Dobropillia front over the past month. For them, surrender is the only chance to survive. 09.09.2025](https://www.reddit.com/r/UkraineInvasionVideos/comments/1ncf2xe/ukrainian_azovs_1st_corps_rubizh_brigade_and_the/)
+
