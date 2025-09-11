@@ -299,3 +299,5 @@ Original line by line translations below
 -=-=-
 [Ukrainian Azov’s 1st Corps, Rubizh Brigade, and the 82nd Air Assault Brigade captured 69 russian invaders on the Dobropillia front over the past month. For them, surrender is the only chance to survive. 09.09.2025](https://www.reddit.com/r/UkraineInvasionVideos/comments/1ncf2xe/ukrainian_azovs_1st_corps_rubizh_brigade_and_the/)
 
+11 Sep 2025
+[A russian soldier refused to die in a meat assault, killed two of his commander-officers, destroyed their position, surrendered to Ukrainian forces, and expressed a desire to fight for Ukraine. Footage from Ukrainian Air Assault Forces. 10.09.2025](https://www.reddit.com/r/UkraineInvasionVideos/comments/1ne9aod/a_russian_soldier_refused_to_die_in_a_meat/)
