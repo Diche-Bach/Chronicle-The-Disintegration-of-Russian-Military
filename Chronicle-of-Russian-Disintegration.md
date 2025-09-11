@@ -3,7 +3,7 @@
 
 ### Introduction
 
-This chronicle began in summer 2025 as a response to a Reddit discussion about whether there was any substantive proof of the degraded state of cohesion, morale, discipline, effectiveness, and solidarity within the Armed Forces of the Russian Federation.
+This chronicle began in June 2025 as a response to a Reddit discussion about whether there was any substantive proof of the degraded state of cohesion, morale, discipline, effectiveness, and solidarity within the Armed Forces of the Russian Federation.
 
 The answer is yes. There is now a vast and growing body of videos and reports showing that the Russian military suffers serious and recurring morale and discipline problems.
 
