@@ -1,6 +1,7 @@
-##Chronicle of the Disintegration of the Russian Military
+## Chronicle of the Disintegration of the Russian Military
 
-###Introduction
+
+### Introduction
 
 This chronicle began in summer 2025 as a response to a Reddit discussion about whether there was any substantive proof of the degraded state of cohesion, morale, discipline, effectiveness, and solidarity within the Armed Forces of the Russian Federation.
 
@@ -13,7 +14,7 @@ Because this repository originated as an ad hoc response to that Reddit query, i
 Contributions are welcome. Readers are encouraged to duplicate or fork this repository, improve the organization, and expand the collection. The ultimate purpose of this Chronicle is to provide a public, educational, and research-friendly archive documenting the observable decline of Russian military cohesion, morale, and discipline throughout the Russo-Ukrainian War (2014–present).
 
 
-###Early Documentation
+### Early Documentation
 
 [Russian servicemen from the 2nd Motorized Rifle Company of the 163rd Tank Regiment of the Russian Armed Forces reportedly claimed to have bronchitis and refused to participate in a “meat assault.” Their commander threw them naked in a pit to cure them by firing above their heads and yelling.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1l767sh/russian_servicemen_from_the_2nd_motorized_rifle/)
 
@@ -106,7 +107,7 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 [“You’ll go on the assault tomorrow and die there” — video showing abuse of a deserter in the Russian army](https://www.reddit.com/r/UkraineWarVideoReport/comments/1legd4d/youll_go_on_the_assault_tomorrow_and_die_there/)
 
 
-###Continuing Evidence
+###C ontinuing Evidence
 
 20 June 2025: Received the following link today.
 [Cannibalism Among Undersupplied Russian Troops Raises Alarm in Ukraine](https://kyivinsider.com/cannibalism-among-undersupplied-russian-troops-raises-alarm-in-ukraine/)
