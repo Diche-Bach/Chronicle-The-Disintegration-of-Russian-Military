@@ -320,3 +320,28 @@ Original line by line translations below
 
 11 Sep 2025
 [A russian soldier refused to die in a meat assault, killed two of his commander-officers, destroyed their position, surrendered to Ukrainian forces, and expressed a desire to fight for Ukraine. Footage from Ukrainian Air Assault Forces. 10.09.2025](https://www.reddit.com/r/UkraineInvasionVideos/comments/1ne9aod/a_russian_soldier_refused_to_die_in_a_meat/)
+
+12 Sep 2025
+[A Russian soldier decided to shoot himself in the head after a drone-dropped munition landed nearby](https://www.reddit.com/r/DroneCombat/comments/1nffst7/a_russian_soldier_decided_to_shoot_himself_in_the/)
+
+Interesting Reddit commentary on the video:
+
+[–]slowwolfcat
+ 
+[+1] 2 points 39 minutes ago 
+
+still don't quite get WTF is the mad rush
+
+-=-=-=-=-
+
+[–]Geometric_Frequency
+ 
+[+5] 2 points 16 minutes ago 
+
+He might’ve just gotten terribly wounded and didn’t want to feel the pain anymore. Also, a lot of these guys know that another drone drop munition or FPV drone could be on the way and most likely is on the way. They don’t want to go through the agony of suffering. I Think that they know they are wounded.. there is no hope for rescue or escape from the front line. So I think a lot of these guys just end it on their own terms while they still have a weapon or grenade close by to utilize and they still have functioning arms and hands that aren’t blown off or mangled yet. so I think that sums up a lot of their thinking.
+
+-=-=-=-=-
+
+That seems like a solid summation of the main factors. One could add: weeks or months in atrocious living conditions—cold, mud, vermin, hunger, exhaustion—layered with constant physical and psycho-social abuse from their own commanders. Day after day they witness comrades left to suffer without aid, sometimes in full view. When you combine that with the accumulated trauma of watching dozens or even hundreds of men be maimed or killed, plus the despair of knowing no help is coming, it corrodes whatever resilience remains.
+
+For someone without much intellectual or emotional resilience to begin with, it can become a perfect recipe for collapse: the war reduces every choice to misery, and suicide becomes the only form of control left to them.
