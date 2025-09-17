@@ -345,3 +345,23 @@ He might’ve just gotten terribly wounded and didn’t want to feel the pain an
 That seems like a solid summation of the main factors. One could add: weeks or months in atrocious living conditions—cold, mud, vermin, hunger, exhaustion—layered with constant physical and psycho-social abuse from their own commanders. Day after day they witness comrades left to suffer without aid, sometimes in full view. When you combine that with the accumulated trauma of watching dozens or even hundreds of men be maimed or killed, plus the despair of knowing no help is coming, it corrodes whatever resilience remains.
 
 For someone without much intellectual or emotional resilience to begin with, it can become a perfect recipe for collapse: the war reduces every choice to misery, and suicide becomes the only form of control left to them.
+
+17 Sept 2025 [A drunk russian invader killed his comrade with axe to his back](https://www.reddit.com/r/UkraineInvasionVideos/comments/1nj9e7b/a_drunk_russian_invader_killed_his_comrade_with/)
+
+Northrop Frye
+
+described four main “mythoi” (narrative archetypes) aligned with the seasons:
+
+Comedy (spring: renewal, social integration)
+
+Romance (summer: triumph, adventure, heroism)
+
+Tragedy (autumn: decline, catastrophe)
+
+Irony/Satire (winter: disintegration, absurdity, horror)
+
+The Story of Putin's Horde is deep into the final stage: irony/horror — a spiral of disintegration, absurdity, and futility. So absurd and horrific it has cycled back around to comedy akin to Monty Python, Whitest Kids U Know, or a Hard Bass School’s meme
+
+This video has been added to the Chronicle of Russian Military Disintegration Github Repository.
+
+That repo is a public research and educational archive documenting the observable decline of Russian military cohesion, morale, and discipline throughout the Russo-Ukrainian War (2014–Present). Contributions welcome. All content is under Creative Commons Zero v1.0 — free to share and reuse without restriction.
