@@ -365,3 +365,6 @@ The Story of Putin's Horde is deep into the final stage: irony/horror — a spir
 This video has been added to the Chronicle of Russian Military Disintegration Github Repository.
 
 That repo is a public research and educational archive documenting the observable decline of Russian military cohesion, morale, and discipline throughout the Russo-Ukrainian War (2014–Present). Contributions welcome. All content is under Creative Commons Zero v1.0 — free to share and reuse without restriction.
+
+23 Sep 2025
+[Russian commander beats and kicks a young soldier who is already injured: ""You didn't go on a combat mission over that scratch?" A russian commander snapped at the serviceman"](https://www.reddit.com/r/UkraineInvasionVideos/comments/1noe19b/you_didnt_go_on_a_combat_mission_over_that/)
