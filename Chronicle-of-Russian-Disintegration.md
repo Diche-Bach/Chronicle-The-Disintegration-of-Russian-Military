@@ -368,3 +368,5 @@ That repo is a public research and educational archive documenting the observabl
 
 23 Sep 2025
 [Russian commander beats and kicks a young soldier who is already injured: ""You didn't go on a combat mission over that scratch?" A russian commander snapped at the serviceman"](https://www.reddit.com/r/UkraineInvasionVideos/comments/1noe19b/you_didnt_go_on_a_combat_mission_over_that/)
+
+[There were more than twenty people. I’m the only one left. I don’t even know these guys." A russian invader was thrown into a meat assault in one of the districts in the Pokrovsk direction. He claims he’s the only survivor, with no evacuation or communications available, and his fate is now unknown](https://www.reddit.com/r/UkraineInvasionVideos/comments/1noqtps/there_were_more_than_twenty_people_im_the_only/)
