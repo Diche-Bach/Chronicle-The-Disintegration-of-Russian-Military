@@ -370,3 +370,10 @@ That repo is a public research and educational archive documenting the observabl
 [Russian commander beats and kicks a young soldier who is already injured: ""You didn't go on a combat mission over that scratch?" A russian commander snapped at the serviceman"](https://www.reddit.com/r/UkraineInvasionVideos/comments/1noe19b/you_didnt_go_on_a_combat_mission_over_that/)
 
 [There were more than twenty people. I’m the only one left. I don’t even know these guys." A russian invader was thrown into a meat assault in one of the districts in the Pokrovsk direction. He claims he’s the only survivor, with no evacuation or communications available, and his fate is now unknown](https://www.reddit.com/r/UkraineInvasionVideos/comments/1noqtps/there_were_more_than_twenty_people_im_the_only/)
+
+24 Sep 2025
+[A Russian soldier is filming the impact of a Ukrainian FPV quad on his position while resting in his bunk bed. Zaporizhzhia Oblast](https://www.reddit.com/r/CombatFootage/comments/1np7805/a_russian_soldier_is_filming_the_impact_of_a/)
+
+This doesn’t look like a dugout or reinforced bunker; look like an improvised billet inside a commandeered house, in sum a highly insecure location for bivouac.
+
+As others have noted, the soldier’s reaction to the blast (a muted exhalation, no panic, no alarm) shows both psychological exhaustion and an almost fatalistic acceptance of his exposure. My Slavic language mastery is quite limited; but pretty sure the phrase he utters toward the end is "пиздец» (pizdets)," which translates roughly as: “Completely fucked.”
