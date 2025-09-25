@@ -383,3 +383,9 @@ That repo is a public research and educational archive documenting the observabl
 This doesn’t look like a dugout or reinforced bunker; look like an improvised billet inside a commandeered house, in sum a highly insecure location for bivouac.
 
 As others have noted, the soldier’s reaction to the blast (a muted exhalation, no panic, no alarm) shows both psychological exhaustion and an almost fatalistic acceptance of his exposure. My Slavic language mastery is quite limited; but pretty sure the phrase he utters toward the end is "пиздец» (pizdets)," which translates roughly as: “Completely fucked.”
+
+25 Sept 2025 [A drunk russian invader set off a grenade in his dugout, costing him his hand](https://www.reddit.com/r/UkraineInvasionVideos/comments/1nq4pzb/a_drunk_russian_invader_set_off_a_grenade_in_his/)
+
+[A punishment for deserting in the russian army](https://www.reddit.com/user/Diche_Bach/comments/1l93mf1/chroniclethedisintegrationofrussianmilitary/)
+
+[Russian invaders were dissatisfied with their comrade’s trench-digging skills, so they punished him by burying him](https://www.reddit.com/r/UkraineWarVideoReport/comments/1nphzk3/russian_invaders_were_dissatisfied_with_their/)
