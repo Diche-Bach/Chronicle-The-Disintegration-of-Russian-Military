@@ -386,6 +386,10 @@ As others have noted, the soldier’s reaction to the blast (a muted exhalation,
 
 25 Sept 2025 [A drunk russian invader set off a grenade in his dugout, costing him his hand](https://www.reddit.com/r/UkraineInvasionVideos/comments/1nq4pzb/a_drunk_russian_invader_set_off_a_grenade_in_his/)
 
+Drunkenness, though not confirmable, is a plausible factor. The incident could have been an “accident” (in which case drunken negligence itself constitutes malfeasance), but it may also have been an attempted suicide or self-inflicted wound to evade combat duty.
+
+Altogether, the case belongs in the Chronicle
+
 [A punishment for deserting in the russian army](https://www.reddit.com/user/Diche_Bach/comments/1l93mf1/chroniclethedisintegrationofrussianmilitary/)
 
 [Russian invaders were dissatisfied with their comrade’s trench-digging skills, so they punished him by burying him](https://www.reddit.com/r/UkraineWarVideoReport/comments/1nphzk3/russian_invaders_were_dissatisfied_with_their/)
