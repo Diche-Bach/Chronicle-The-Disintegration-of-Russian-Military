@@ -104,6 +104,12 @@ u/LumpyTeacher6463 [prompted me to dig up some links](https://www.reddit.com/r/C
 
 [Tension & Antagonism Among Russian Crews in Dinghy's at Night](https://www.reddit.com/r/UkraineWarVideoReport/comments/1lc6obd/russian_special_forces_at_work_published_15062025/)
 
+25 Sept 2025 ADDIT: This clip was originally included here based on contemporaneous Reddit commentary suggesting it depicts conflict and dysfunction among Russian troops, with some native speakers claiming the dialogue shows ethnic antagonism and even threats to fire on one another.
+
+Subsequently, I received a private message asserting that the footage actually shows Russian forces interdicting fish poachers. I cannot confirm or deny that interpretation.
+
+Request: I welcome verification from a fluent Russian speaker who is demonstrably independent of the Putin regime. If I can be convincingly shown that this footage does not reflect dysfunction among Russian military personnel, I will remove it from the Chronicle.
+
 [“You’ll go on the assault tomorrow and die there” — video showing abuse of a deserter in the Russian army](https://www.reddit.com/r/UkraineWarVideoReport/comments/1legd4d/youll_go_on_the_assault_tomorrow_and_die_there/)
 
 
