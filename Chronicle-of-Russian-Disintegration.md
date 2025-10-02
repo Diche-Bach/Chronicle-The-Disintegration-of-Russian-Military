@@ -397,3 +397,8 @@ Altogether, the case belongs in the Chronicle
 27 Sep 2025 [A punishment for desertion in the Russian army. Unit 01605, 2nd company, 2nd platoon, 1st squad, 135th Motorized Rifle Battalion, 37th Motorized Rifle Brigade, under company commander Thesis.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1nrr8hp/a_punishment_for_desertion_in_the_russian_army/)
 
 2 Oct 2025 [Russians on scooters hit a mine then retreat, only to be shot by the next group of russian infantry for retreating](https://www.reddit.com/r/DroneCombat/comments/1nvxnvp/russians_on_scooters_hit_a_mine_then_retreat_only/)
+
+[Evacuation in the Russian army - if you can’t sit on the back of a motorbike, you won’t be rescued.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1nw0v9f/evacuation_in_the_russian_army_if_you_cant_sit_on/)
+
+[Due to the lack of armored vehicles at the front, motorcycles, electric scooters and ... Horse.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1ntgn1e/due_to_the_lack_of_armored_vehicles_at_the_front/)
+
