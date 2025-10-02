@@ -395,3 +395,5 @@ Altogether, the case belongs in the Chronicle
 [Russian invaders were dissatisfied with their comrade’s trench-digging skills, so they punished him by burying him](https://www.reddit.com/r/UkraineWarVideoReport/comments/1nphzk3/russian_invaders_were_dissatisfied_with_their/)
 
 27 Sep 2025 [A punishment for desertion in the Russian army. Unit 01605, 2nd company, 2nd platoon, 1st squad, 135th Motorized Rifle Battalion, 37th Motorized Rifle Brigade, under company commander Thesis.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1nrr8hp/a_punishment_for_desertion_in_the_russian_army/)
+
+2 Oct 2025 [Russians on scooters hit a mine then retreat, only to be shot by the next group of russian infantry for retreating](https://www.reddit.com/r/DroneCombat/comments/1nvxnvp/russians_on_scooters_hit_a_mine_then_retreat_only/)
