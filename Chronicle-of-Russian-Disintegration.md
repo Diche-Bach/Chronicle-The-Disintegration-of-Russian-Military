@@ -402,3 +402,21 @@ Altogether, the case belongs in the Chronicle
 
 [Due to the lack of armored vehicles at the front, motorcycles, electric scooters and ... Horse.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1ntgn1e/due_to_the_lack_of_armored_vehicles_at_the_front/)
 
+3 Oct 2025 [here were about eight people, lying in black bags. A pit, they are being thrown in there. Then they list them as missing.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1nwt9df/there_were_about_eight_people_lying_in_black_bags/)
+In the video, a Russian soldier is recording a message to his wife, describing high casualties, constant drone attacks, dangers from land mines, and the mistreatment of the dead.
+
+It is always fascinating to see one of these and consider the ethnographic inferences we can make.
+
+The first thing I would note: this individual’s manner and attire suggest he is experienced and belongs to the tier of Russia’s better-trained and more valued troops, the so-called Охотники (Okhotniki, “hunters”) vs. Мясо (Myaso, “meat”). This is also reflected in his claim that they had walked 14 or 15 kilometers in the preceding 24 hours, which suggests his unit had been redeployed as a reinforcement.
+
+Several inferences can be drawn from his message structure, his phrasing, and his visible attentiveness to who might overhear him. He records while walking amid a Russian position, probably to appear nonchalant. The information included in the final part of his message would almost certainly be deemed illegal. Walking casually while filming himself with his phone makes it look like an ordinary video for his wife. That reduces the chance a Стукач (Stukach, “informer,” literally “knocker”) might report him for subversive speech.
+
+He leaves the restricted content for the very end, and when it comes, he keeps it short: the bodies are being tossed into unmarked pits and then recorded as “missing.” His expression and tone suggest he knows this will shock his wife. The earlier talk about seas of bodies, exhaustion, and devastation was camouflage, filler that could be overheard without consequence. The real message is brief and dangerous: someone in command is lying, and families are being robbed of their death payments. From this we can infer he is not an officer, though perhaps an NCO.
+
+The fact that bodies are dumped into common graves in Ukraine does not in itself prove that they will be registered as “missing.” But this soldier claims that is what is happening, which means he has seen enough, or heard enough from others, to believe it. If he is saying it on camera, soldiers are talking about it among themselves. And if they are talking about it, then mutiny is in the air.
+
+It is one thing to exploit the низшие касты (nizshie kasty, “lowest castes”) of Russian society, prisoners, migrants, addicts, ethnic minorities, and the Storm-Z penal units, training and arming them poorly and using them as expendable assets. These Мясо (Myaso, “meat”) are unlikely to have many advocates at home, and their testimony can be dismissed as the word of untrustworthy дегенераты (degeneraty, “degenerates”). But this man does not appear to be from that world. He looks and speaks like someone from the loyalist core of “ethnic Russians” who may have even voted for Putin. And here lies the danger for the regime: its repressive apparatus is made up of men like this. The more they are defrauded and mistreated, the more fragile the system becomes.
+
+Most likely he and his wife were loyal until very recently. He probably signed up, or extended his contract, for the money. And the two of them had accepted that if he died, at least she would receive the compensation. The whole purpose of this message is to warn her: “If I go missing, I might have been stuffed in a bag and buried in an unmarked grave somewhere in Ukraine.”
+
+Пиздец (Pizdets, “utter disaster/fucked beyond repair”) indeed . . .
