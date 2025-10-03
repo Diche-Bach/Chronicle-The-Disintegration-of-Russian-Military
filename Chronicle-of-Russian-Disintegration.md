@@ -407,7 +407,7 @@ In the video, a Russian soldier is recording a message to his wife, describing h
 
 It is always fascinating to see one of these and consider the ethnographic inferences we can make.
 
-The first thing I would note: this individual’s manner and attire suggest he is experienced and belongs to the tier of Russia’s better-trained and more valued troops, the so-called Охотники (Okhotniki, “hunters”) vs. Мясо (Myaso, “meat”). This is also reflected in his claim that they had walked 14 or 15 kilometers in the preceding 24 hours, which suggests his unit had been redeployed as a reinforcement.
+The first thing I would note: this individual’s manner and attire suggest he is experienced and belongs to the tier of Russia’s better-trained and more valued troops, the so-called Контрактники (Kontraktniki, “contract soldiers”) vs. Мясо (Myaso, “meat”). This is also reflected in his claim that they had walked 14 or 15 kilometers in the preceding 24 hours, which suggests his unit had been redeployed as a reinforcement.
 
 Several inferences can be drawn from his message structure, his phrasing, and his visible attentiveness to who might overhear him. He records while walking amid a Russian position, probably to appear nonchalant. The information included in the final part of his message would almost certainly be deemed illegal. Walking casually while filming himself with his phone makes it look like an ordinary video for his wife. That reduces the chance a Стукач (Stukach, “informer,” literally “knocker”) might report him for subversive speech.
 
