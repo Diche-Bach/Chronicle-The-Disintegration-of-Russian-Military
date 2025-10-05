@@ -26,7 +26,7 @@ Contributions are welcome. Readers are encouraged to duplicate or fork this repo
 
 [A reported 260+ confirmed suicides, and likely hundreds more unreported](https://www.reddit.com/r/UkraineInvasionVideos/comments/1kwnqrg/nsfwnsfl_aftermath_footage_of_a_botched_suicide/). [These are tracked by OSINT researchers using available video and forensic evidence]( https://www.reddit.com/r/UkraineInvasionVideos/comments/1kwnqrg/nsfwnsfl_aftermath_footage_of_a_botched_suicide/mujdz9e/)
 
-[Dozens of videos showing soldiers being beaten in detention, berated as cowards, traitors, and weaklings.] (https://www.reddit.com/r/UkraineWarVideoReport/comments/1j18ul5/punishment_in_the_russian_army_presumably_for/)
+[Dozens of videos showing soldiers being beaten in detention, berated as cowards, traitors, and weaklings.](https://www.reddit.com/r/UkraineWarVideoReport/comments/1j18ul5/punishment_in_the_russian_army_presumably_for/)
 
 [Confirmed incidents of fragging officers](https://www.reddit.com/r/UkraineWarVideoReport/comments/1inohh9/russian_soldier_shoots_dead_four_comrades_while/), alongside evidence—both from POW testimony and intercepted communications—of the [use of barrier troops (“zagraditel’nye otryady”) in the Soviet tradition: informal death squads whose job is to shoot their own if they try to retreat.] (https://www.reddit.com/r/ukraine/comments/u7ywae/chechens_are_acting_as_barrier_troops_killing_rf/)
 
