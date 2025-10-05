@@ -63,11 +63,14 @@ Contributions are welcome. Please ensure submissions are:
     Respectful of human dignity and privacy (avoid gore or identifiable civilian content)
 
 To propose additions, open a pull request or submit an issue.
+
 License
 
-All contents of this repository are released under the Creative Commons Zero v1.0 Universal license. This means:
+This repository does not host or redistribute copyrighted media files; all third-party materials are linked to their original public locations for documentation and analysis.
 
-    You are free to copy, modify, distribute, and use the content.
+All original text, organization, and commentary in this repository are released under the Creative Commons Zero v1.0 Universal license, meaning they can be freely shared and reused without restriction.
+
+Linked or embedded media (e.g., videos, images) remain the property of their respective copyright holders and are included here for educational and research purposes under fair-use principles.
 
 For full legal text, see: CC0 1.0 Legal Code
 
