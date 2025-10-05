@@ -24,7 +24,7 @@ Contributions are welcome. Readers are encouraged to duplicate or fork this repo
 
 [Troops forced to fight each other bare-chested in a pit, as a form of punishment and humiliation—again, for failing to die in a suicidal assault](https://www.reddit.com/r/UkraineWarVideoReport/comments/1kk86y6/russian_soldiers_who_refused_to_fight_were_put_in/)
 
-[A reported 260+ confirmed suicides, and likely hundreds more unreported] (https://www.reddit.com/r/UkraineInvasionVideos/comments/1kwnqrg/nsfwnsfl_aftermath_footage_of_a_botched_suicide/). [These are tracked by OSINT researchers using available video and forensic evidence]( https://www.reddit.com/r/UkraineInvasionVideos/comments/1kwnqrg/nsfwnsfl_aftermath_footage_of_a_botched_suicide/mujdz9e/)
+[A reported 260+ confirmed suicides, and likely hundreds more unreported](https://www.reddit.com/r/UkraineInvasionVideos/comments/1kwnqrg/nsfwnsfl_aftermath_footage_of_a_botched_suicide/). [These are tracked by OSINT researchers using available video and forensic evidence]( https://www.reddit.com/r/UkraineInvasionVideos/comments/1kwnqrg/nsfwnsfl_aftermath_footage_of_a_botched_suicide/mujdz9e/)
 
 [Dozens of videos showing soldiers being beaten in detention, berated as cowards, traitors, and weaklings.] (https://www.reddit.com/r/UkraineWarVideoReport/comments/1j18ul5/punishment_in_the_russian_army_presumably_for/)
 
