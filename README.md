@@ -72,6 +72,8 @@ All original text, organization, and commentary in this repository are released 
 
 Linked or embedded media (e.g., videos, images) remain the property of their respective copyright holders and are included here for educational and research purposes under fair-use principles.
 
+This repository contains only textual references and links to publicly available material; no copyrighted media are hosted on GitHub’s servers.
+
 For full legal text, see: CC0 1.0 Legal Code
 
 Disclaimer
