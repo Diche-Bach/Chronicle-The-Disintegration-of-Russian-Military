@@ -420,3 +420,8 @@ It is one thing to exploit the low-status castes of Russian society (convicts, m
 Most likely he and his wife were loyal until very recently. He probably signed up, or extended his contract, for the money. And the two of them had accepted that if he died, at least she would receive the compensation. The whole purpose of this message is to warn her: “If I go missing, I might have been stuffed in a bag and buried in an unmarked grave somewhere in Ukraine.”
 
 Пиздец (Pizdets, “utter disaster/fucked beyond repair”) indeed . . .
+
+6 Oct 2025 [2:48
+
+"We’re cannon fodder, being sent straight to slaughter. Every tree line, open area, everywhere is strewn with Russian corpses." A Russian invader got drunk, signed fake papers, and became a "pack mule," the Russian army’s lowest rank - unarmed men carrying supplies, expendable as a drone](https://www.reddit.com/r/UkraineInvasionVideos/comments/1nzsv9w/were_cannon_fodder_being_sent_straight_to/)
+
