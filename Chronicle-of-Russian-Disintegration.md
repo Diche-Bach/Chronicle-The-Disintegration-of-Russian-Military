@@ -444,3 +444,4 @@ Casual bravado: As in Western pop culture, the shaka can mean “it’s all good
 Dark humor/gallows irony: Given the setting (two corpses nearby, him alive), this is almost certainly ironic: a soldier acknowledging the absurdity and horror of the situation, using a globalized gesture of carefree normalcy. It’s “nothing to see here, just another day in paradise.”
 
 While I would not say that this video is a clear sign of either high or low morale/cohesion/effectiveness, the simple fact that the solder found it expedient in his situation to record this video with the ironic/sardonic ending is worthy of curation . . .
+[More beatings in the Russian army. Commanders of 5th MRB send disposable soldiers from occupied Donetsk on one-way assaults. Those who refuse are intimidated, humiliated, and beaten](https://www.reddit.com/r/UkraineInvasionVideos/comments/1o1j9pt/more_beatings_in_the_russian_army_commanders_of/)
