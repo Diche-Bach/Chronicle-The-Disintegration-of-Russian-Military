@@ -423,5 +423,7 @@ Most likely he and his wife were loyal until very recently. He probably signed u
 
 6 Oct 2025 [2:48
 
-"We’re cannon fodder, being sent straight to slaughter. Every tree line, open area, everywhere is strewn with Russian corpses." A Russian invader got drunk, signed fake papers, and became a "pack mule," the Russian army’s lowest rank - unarmed men carrying supplies, expendable as a drone](https://www.reddit.com/r/UkraineInvasionVideos/comments/1nzsv9w/were_cannon_fodder_being_sent_straight_to/)
+["We’re cannon fodder, being sent straight to slaughter. Every tree line, open area, everywhere is strewn with Russian corpses." A Russian invader got drunk, signed fake papers, and became a "pack mule," the Russian army’s lowest rank - unarmed men carrying supplies, expendable as a drone](https://www.reddit.com/r/UkraineInvasionVideos/comments/1nzsv9w/were_cannon_fodder_being_sent_straight_to/)
+
+8 Oct 2025 ["He told you to fall back to the second line. Why the fuck did you retreat all the way to the deep rear?" Three Russian soldiers were punished with electric shocks for retreating from the front line](https://www.reddit.com/r/UkraineInvasionVideos/comments/1o163vp/he_told_you_to_fall_back_to_the_second_line_why/)
 
