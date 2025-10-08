@@ -427,3 +427,5 @@ Most likely he and his wife were loyal until very recently. He probably signed u
 
 8 Oct 2025 ["He told you to fall back to the second line. Why the fuck did you retreat all the way to the deep rear?" Three Russian soldiers were punished with electric shocks for retreating from the front line](https://www.reddit.com/r/UkraineInvasionVideos/comments/1o163vp/he_told_you_to_fall_back_to_the_second_line_why/)
 
+[A serviceman of the Russian Armed Forces shows the situation on the southern front. Brief and clearOther Video (v.redd.it)](https://www.reddit.com/r/UkraineWarVideoReport/comments/1o15pye/a_serviceman_of_the_russian_armed_forces_shows/)
+
