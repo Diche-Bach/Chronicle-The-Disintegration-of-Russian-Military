@@ -429,3 +429,18 @@ Most likely he and his wife were loyal until very recently. He probably signed u
 
 [A serviceman of the Russian Armed Forces shows the situation on the southern front. Brief and clearOther Video (v.redd.it)](https://www.reddit.com/r/UkraineWarVideoReport/comments/1o15pye/a_serviceman_of_the_russian_armed_forces_shows/)
 
+The video "A serviceman of the Russian Armed Forces shows the situation on the southern front. Brief and clear" is 8 seconds long.
+
+The individual is sitting in the forest filming (his foot is visible initially). He films a decomposing corpse 3 or 4 meters in front of him. He then turns his camera to show there is a second corpse immediately behind him.
+
+Presumably, he finds himself "stuck" in the position he is in to some extent, whether because he was ordered to take up that exact position or he is unable to move away from the corpses for some other reason.
+
+After filming the two corpses in his midst, he then points the camera at himself and flashes he “shaka” or “hang loose” gesture (thumb and pinky extended, other fingers folded) a hand sign of relaxed acknowledgment or informal camaraderie.
+
+In Russian or Eastern European military and slang contexts (especially among younger troops), this gesture has a few potential overlapping meanings:
+
+Casual bravado: As in Western pop culture, the shaka can mean “it’s all good,” “I’m chill,” or “still alive.” Among Russian soldiers, it’s sometimes used ironically: a kind of “yeah, we’re in hell, but whatever.”
+
+Dark humor/gallows irony: Given the setting (two corpses nearby, him alive), this is almost certainly ironic: a soldier acknowledging the absurdity and horror of the situation, using a globalized gesture of carefree normalcy. It’s “nothing to see here, just another day in paradise.”
+
+While I would not say that this video is a clear sign of either high or low morale/cohesion/effectiveness, the simple fact that the solder found it expedient in his situation to record this video with the ironic/sardonic ending is worthy of curation . . .
