@@ -445,3 +445,6 @@ Dark humor/gallows irony: Given the setting (two corpses nearby, him alive), thi
 
 While I would not say that this video is a clear sign of either high or low morale/cohesion/effectiveness, the simple fact that the solder found it expedient in his situation to record this video with the ironic/sardonic ending is worthy of curation . . .
 [More beatings in the Russian army. Commanders of 5th MRB send disposable soldiers from occupied Donetsk on one-way assaults. Those who refuse are intimidated, humiliated, and beaten](https://www.reddit.com/r/UkraineInvasionVideos/comments/1o1j9pt/more_beatings_in_the_russian_army_commanders_of/)
+
+11 Oct 2025 ["We don't abandon our own." A russian invader, left behind by a tank, was eliminated by drone-dropped munitions of Ukraine’s 137th Marine Battalion "Hydra" drone unit. 11.10.2025](https://www.reddit.com/r/UkraineInvasionVideos/comments/1o4624b/we_dont_abandon_our_own_a_russian_invader_left/)
+
