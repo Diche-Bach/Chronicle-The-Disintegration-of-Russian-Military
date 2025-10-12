@@ -448,3 +448,5 @@ While I would not say that this video is a clear sign of either high or low mora
 
 11 Oct 2025 ["We don't abandon our own." A russian invader, left behind by a tank, was eliminated by drone-dropped munitions of Ukraine’s 137th Marine Battalion "Hydra" drone unit. 11.10.2025](https://www.reddit.com/r/UkraineInvasionVideos/comments/1o4624b/we_dont_abandon_our_own_a_russian_invader_left/)
 
+[The First Elite Brigade of the Russian Armed Forces filmed a video while preparing for an assault. Published 11.10.2025](https://www.reddit.com/r/UkraineWarVideoReport/comments/1o4b8wx/the_first_elite_brigade_of_the_russian_armed/)
+
