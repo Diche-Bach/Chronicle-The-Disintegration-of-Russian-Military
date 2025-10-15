@@ -451,3 +451,6 @@ While I would not say that this video is a clear sign of either high or low mora
 [The First Elite Brigade of the Russian Armed Forces filmed a video while preparing for an assault. Published 11.10.2025](https://www.reddit.com/r/UkraineWarVideoReport/comments/1o4b8wx/the_first_elite_brigade_of_the_russian_armed/)
 
 14 Oct 2025 [Yet another russian invader decided to end it himself. Footage by Ukraine’s Sniper Group E40. 12.10.2025.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1o5s4q1/yet_another_russian_invader_decided_to_end_it/)
+
+[NSFW/ NSFL: The Ukrainian 49th separate assault battalion "Carpathian Sich" took out Russian soldiers in the Toretsk direction and observed how one wounded Russian soldier shot himself. Published 14.10.2025](https://www.reddit.com/r/UkraineWarVideoReport/comments/1o6rt13/nsfw_nsfl_the_ukrainian_49th_separate_assault/)
+
