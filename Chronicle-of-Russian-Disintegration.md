@@ -454,3 +454,5 @@ While I would not say that this video is a clear sign of either high or low mora
 
 [NSFW/ NSFL: The Ukrainian 49th separate assault battalion "Carpathian Sich" took out Russian soldiers in the Toretsk direction and observed how one wounded Russian soldier shot himself. Published 14.10.2025](https://www.reddit.com/r/UkraineWarVideoReport/comments/1o6rt13/nsfw_nsfl_the_ukrainian_49th_separate_assault/)
 
+17 Oct 2025 ["I’m in a store with hostages. I have a live F-1 grenade in my hand." A wounded russian invader deserted and took store employees hostage, threatening to blow up a grenade so he’d be taken to the prosecutor’s office, to avoid being killed by his commander for disobeying orders](https://www.reddit.com/r/UkraineInvasionVideos/comments/1o9akha/im_in_a_store_with_hostages_i_have_a_live_f1/)
+
