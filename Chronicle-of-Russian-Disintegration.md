@@ -459,3 +459,5 @@ While I would not say that this video is a clear sign of either high or low mora
 19 Oct 2025 [Russian soldier gives up after Ukrainian drone strike](https://www.reddit.com/r/DroneCombat/comments/1o9wucz/russian_soldier_gives_up_after_ukrainian_drone/)
 
 22 Oct 2025 [NSFW/NSFL: Ukrainian drone operators of the 3rd Operational Brigade Spartan observed 2 Russian soldiers blowing themselves up. Pokrovsk direction. Published 21.10.2025 by the National Guard. [Very graphic content!!]](https://www.reddit.com/r/DroneCombat/comments/1ocnz8d/nsfwnsfl_ukrainian_drone_operators_of_the_3rd/)
+
+Some forms of "disintegration" are the best: [Up to 50 Russian soldiers surrenders in Kucheriv Yar, Pokrovsk area.Town was liberated today by Armed Forces of Ukraine](https://www.reddit.com/r/DroneCombat/comments/1odg5jl/up_to_50_russian_soldiers_surrenders_in_kucheriv/) Kucheriv Yar is the settlement in which Russian troops have been cut off for over a month located approximately 26km north-northeast of Pokrovsk.
