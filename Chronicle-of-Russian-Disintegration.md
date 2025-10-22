@@ -457,3 +457,5 @@ While I would not say that this video is a clear sign of either high or low mora
 17 Oct 2025 ["I’m in a store with hostages. I have a live F-1 grenade in my hand." A wounded russian invader deserted and took store employees hostage, threatening to blow up a grenade so he’d be taken to the prosecutor’s office, to avoid being killed by his commander for disobeying orders](https://www.reddit.com/r/UkraineInvasionVideos/comments/1o9akha/im_in_a_store_with_hostages_i_have_a_live_f1/)
 
 19 Oct 2025 [Russian soldier gives up after Ukrainian drone strike](https://www.reddit.com/r/DroneCombat/comments/1o9wucz/russian_soldier_gives_up_after_ukrainian_drone/)
+
+22 Oct 2025 [NSFW/NSFL: Ukrainian drone operators of the 3rd Operational Brigade Spartan observed 2 Russian soldiers blowing themselves up. Pokrovsk direction. Published 21.10.2025 by the National Guard. [Very graphic content!!]](https://www.reddit.com/r/DroneCombat/comments/1ocnz8d/nsfwnsfl_ukrainian_drone_operators_of_the_3rd/)
