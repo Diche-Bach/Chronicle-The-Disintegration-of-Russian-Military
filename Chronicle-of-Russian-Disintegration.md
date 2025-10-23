@@ -465,3 +465,5 @@ Some forms of "disintegration" are the best: [Up to 50 Russian soldiers surrende
 [NSFW/NSFL: Ukrainian drone operators observed a Russian soldier blowing himself up. Published 22.10.2025](https://www.reddit.com/r/UkraineWarVideoReport/comments/1odnc75/nsfwnsfl_ukrainian_drone_operators_observed_a/)
 
 23 Oct 2025 [NSFW. Drone work by the Ukrainian soldier 'Terny', including a russian soldier shooting himself. Uploaded August 2025.](https://www.reddit.com/r/CombatFootage/comments/1odzw6p/nsfw_drone_work_by_the_ukrainian_soldier_terny/)
+
+["In five days I've eaten two pieces of bread. I saw Hundreds and hundreds of corpses. It's a one-way-ticket. We're not coming back." A russian invader recorded a video before dying in Ukraine. He complains about the command, russian propaganda, lack of food/water and "Ukrainian superiority"](https://www.reddit.com/r/UkraineInvasionVideos/comments/1oed3ix/in_five_days_ive_eaten_two_pieces_of_bread_i_saw/)
