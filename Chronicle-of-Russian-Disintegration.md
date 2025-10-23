@@ -463,3 +463,5 @@ While I would not say that this video is a clear sign of either high or low mora
 Some forms of "disintegration" are the best: [Up to 50 Russian soldiers surrenders in Kucheriv Yar, Pokrovsk area.Town was liberated today by Armed Forces of Ukraine](https://www.reddit.com/r/DroneCombat/comments/1odg5jl/up_to_50_russian_soldiers_surrenders_in_kucheriv/) Kucheriv Yar is the settlement in which Russian troops have been cut off for over a month located approximately 26km north-northeast of Pokrovsk.
 
 [NSFW/NSFL: Ukrainian drone operators observed a Russian soldier blowing himself up. Published 22.10.2025](https://www.reddit.com/r/UkraineWarVideoReport/comments/1odnc75/nsfwnsfl_ukrainian_drone_operators_observed_a/)
+
+23 Oct 2025 [NSFW. Drone work by the Ukrainian soldier 'Terny', including a russian soldier shooting himself. Uploaded August 2025.](https://www.reddit.com/r/CombatFootage/comments/1odzw6p/nsfw_drone_work_by_the_ukrainian_soldier_terny/)
