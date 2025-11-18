@@ -480,3 +480,7 @@ Recent article on ISW concluded that Russian casualties in recent periods are in
 [Russian Offensive Campaign Assessment, 7 October 2025](https://understandingwar.org/research/russia-ukraine/russian-offensive-campaign-assessment-october-7-2025/)
 
 > Ukraine’s “I Want to Live” initiative reported that Russia’s casualty ratio is one KIA for every 1.3 WIA, likely due to insufficient tactical medicine training and the Russian military command’s frequent failure to sufficiently rehabilitate WIA. The standard KIA to WIA ratio is one-to-three, which demonstrates that the Russian forces currently appear to have an abnormally high KIA to WIA ratio (1:1.3) likely due to the efficacy of pervasive tactical-level drone strikes that have created kill zones (an area immediately near the frontline where a mass of tactical strike and reconnaissance drones pose an elevated risk to any equipment or personnel that enters the area) throughout the theater, complicating both sides ability to evacuate casualties and triage WIA.
+
+18 Nov 2025
+[Ukrainian 3rd Army Corps "Fatum" / 60th Mechanized Brigade stopped a Russian attack, finding and removing the attackers using FPV drones. November 17, 2025](https://www.reddit.com/r/DroneCombat/comments/1p03rox/ukrainian_3rd_army_corps_fatum_60th_mechanized/) Footage includes at least one Russian soldier ending his own life with rifle fire to his face after being wounded by an FPV drone.
+
