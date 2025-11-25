@@ -484,3 +484,4 @@ Recent article on ISW concluded that Russian casualties in recent periods are in
 18 Nov 2025
 [Ukrainian 3rd Army Corps "Fatum" / 60th Mechanized Brigade stopped a Russian attack, finding and removing the attackers using FPV drones. November 17, 2025](https://www.reddit.com/r/DroneCombat/comments/1p03rox/ukrainian_3rd_army_corps_fatum_60th_mechanized/) Footage includes at least one Russian soldier ending his own life with rifle fire to his face after being wounded by an FPV drone.
 
+25 Nov 2025 [(Unknown Unit/Longer Version) A Ukrainian Drone Observes a Wounded Russian soldier Committing Suicide with His Rifle After Being Hit by a Dropped Grenade (Published on November 24, 2025)](https://www.reddit.com/r/DroneCombat/comments/1p5yqeb/unknown_unitlonger_version_a_ukrainian_drone/)
