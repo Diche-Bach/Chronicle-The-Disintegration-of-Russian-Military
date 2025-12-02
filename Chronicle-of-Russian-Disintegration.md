@@ -487,3 +487,5 @@ Recent article on ISW concluded that Russian casualties in recent periods are in
 25 Nov 2025 [(Unknown Unit/Longer Version) A Ukrainian Drone Observes a Wounded Russian soldier Committing Suicide with His Rifle After Being Hit by a Dropped Grenade (Published on November 24, 2025)](https://www.reddit.com/r/DroneCombat/comments/1p5yqeb/unknown_unitlonger_version_a_ukrainian_drone/)
 
 1 Dec 2025 [NSFW/NSFL: Russian soldier observed by the 3rd Heavy Mechanized Brigade shooting himself. Kupyansk direction. 30.11.2025](https://www.reddit.com/r/DroneCombat/comments/1pap63f/nsfwnsfl_russian_soldier_observed_by_the_3rd/)
+
+[3 russian soldiers finish themselves after being wounded](https://www.reddit.com/r/DroneCombat/comments/1pbjlhf/3_russian_soldiers_finish_themselves_after_being/)
