@@ -489,3 +489,6 @@ Recent article on ISW concluded that Russian casualties in recent periods are in
 1 Dec 2025 [NSFW/NSFL: Russian soldier observed by the 3rd Heavy Mechanized Brigade shooting himself. Kupyansk direction. 30.11.2025](https://www.reddit.com/r/DroneCombat/comments/1pap63f/nsfwnsfl_russian_soldier_observed_by_the_3rd/)
 
 [3 russian soldiers finish themselves after being wounded](https://www.reddit.com/r/DroneCombat/comments/1pbjlhf/3_russian_soldiers_finish_themselves_after_being/)
+
+9 Dec 2025
+Something a bit different and thankfully, less morbid . . . the story of [From “War Hero” to “Traitor”: Russian Officer Who Shot Himself to Escape Putin’s War (ARTE doc with Masha Borзунова)](https://www.reddit.com/r/FreedomofRussia/comments/1pg76dj/from_war_hero_to_traitor_russian_officer_who_shot/)
