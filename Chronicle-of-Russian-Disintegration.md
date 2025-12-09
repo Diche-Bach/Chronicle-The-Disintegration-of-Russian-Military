@@ -491,4 +491,7 @@ Recent article on ISW concluded that Russian casualties in recent periods are in
 [3 russian soldiers finish themselves after being wounded](https://www.reddit.com/r/DroneCombat/comments/1pbjlhf/3_russian_soldiers_finish_themselves_after_being/)
 
 9 Dec 2025
-Something a bit different and thankfully, less morbid . . . the story of [From “War Hero” to “Traitor”: Russian Officer Who Shot Himself to Escape Putin’s War (ARTE doc with Masha Borзунова)](https://www.reddit.com/r/FreedomofRussia/comments/1pg76dj/from_war_hero_to_traitor_russian_officer_who_shot/)
+Something a bit different and thankfully, less morbid . . . the story of Evgeny Korobov [From “War Hero” to “Traitor”: Russian Officer Who Shot Himself to Escape Putin’s War (ARTE doc with Masha Borзунова)](https://www.reddit.com/r/FreedomofRussia/comments/1pg76dj/from_war_hero_to_traitor_russian_officer_who_shot/)
+
+I come away from this film with the tentative but strong impression that Korobov has fully recognized the wrong he took part in. His argument that those who went to war for money or hatred should be judged differently from those who were effectively trapped in the machine is, to me, compelling. Russia will continue to exist after this war, and the real strategic question for the world is how to help Russians dismantle the current tyrannical order and build institutions and norms that make genuine reform durable. People like Korobov will be indispensable in any serious post-war transformation.
+
