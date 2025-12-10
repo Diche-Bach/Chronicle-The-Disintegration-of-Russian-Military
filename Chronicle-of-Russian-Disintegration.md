@@ -495,3 +495,30 @@ Something a bit different and thankfully, less morbid . . . the story of Evgeny 
 
 I come away from this film with the tentative but strong impression that Korobov has fully recognized the wrong he took part in. His argument that those who went to war for money or hatred should be judged differently from those who were effectively trapped in the machine is, to me, compelling. Russia will continue to exist after this war, and the real strategic question for the world is how to help Russians dismantle the current tyrannical order and build institutions and norms that make genuine reform durable. People like Korobov will be indispensable in any serious post-war transformation.
 
+[A russian invader shot himself in the head after a drone-dropped munition hit a group of three russian occupiers taking up positions in an anti-tank ditch. The rest were taken out by an FPV drone. Ukraine’s 414th UAV Brigade "Birds of Magyar." 09.12.2025](https://www.reddit.com/r/UkraineInvasionVideos/comments/1pikrfa/a_russian_invader_shot_himself_in_the_head_after/)
+
+[–]DerRoteBaron2010
+ 
+[+1] 2 points an hour ago 
+
+How many instances is that now?
+
+    permalink save reportreplied
+
+[–]Diche_Bach 2 points 3 minutes ago 
+
+Round about 300 that are OSINT documented for sure. But that could be only a fraction of the total. Total casualties as of today are at 1,181,680. That leaked Russian MoD data back in October "Russian Offensive Campaign Assessment, October 7, 2025" indicated (for the months of Jan to Aug 2025):
+
+281,550 total casualties
+
+86,744 KIA (30.8%)
+
+33,996 MIA (12.1%)
+
+158,529 WIA (56.3%)
+
+2,311 captured (8.1%)
+
+A significant fraction of those 33,996 "MIA" are probably in fact KIA. But any number of those could also be self-inflicted wounds.
+
+So 300 OSINT documented over the past 3.8 years may well be barely scratching the surface. It could be tens of thousands in total . . . we may never know for sure, but given the norms of how Russian personnel are deployed and commanded the possibility of the total being that high cannot be dismissed.
