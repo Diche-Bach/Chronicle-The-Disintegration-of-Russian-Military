@@ -522,3 +522,5 @@ Round about 300 that are OSINT documented for sure. But that could be only a fra
 A significant fraction of those 33,996 "MIA" are probably in fact KIA. But any number of those could also be self-inflicted wounds.
 
 So 300 OSINT documented over the past 3.8 years may well be barely scratching the surface. It could be tens of thousands in total . . . we may never know for sure, but given the norms of how Russian personnel are deployed and commanded the possibility of the total being that high cannot be dismissed.
+
+[ADAM Group dropping grenades on russian soldiers](https://www.reddit.com/r/DroneCombat/comments/1prl4xv/adam_group_dropping_grenades_on_russian_soldiers/) So apparently this video is from 2023? In any event, the self-inflicted wound (which appears to have been lethal) means it belongs in the Chronicle.
