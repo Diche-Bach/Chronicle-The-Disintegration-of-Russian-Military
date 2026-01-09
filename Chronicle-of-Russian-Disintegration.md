@@ -524,3 +524,17 @@ A significant fraction of those 33,996 "MIA" are probably in fact KIA. But any n
 So 300 OSINT documented over the past 3.8 years may well be barely scratching the surface. It could be tens of thousands in total . . . we may never know for sure, but given the norms of how Russian personnel are deployed and commanded the possibility of the total being that high cannot be dismissed.
 
 [ADAM Group dropping grenades on russian soldiers](https://www.reddit.com/r/DroneCombat/comments/1prl4xv/adam_group_dropping_grenades_on_russian_soldiers/) So apparently this video is from 2023? In any event, the self-inflicted wound (which appears to have been lethal) means it belongs in the Chronicle.
+
+9 Jan 2026
+[Russian soldiers strap a heavy TM-62 anti-tank mine to an African man, coerced into service, then prod and push him toward Ukrainian positions with their rifles, forcing the terrified recruit to act as a living suicide bomb.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1q87enx/russian_soldiers_strap_a_heavy_tm62_antitank_mine/)
+
+Most standard anti-tank mines are designed not to detonate under human body weight. Typical pressure-plate AT mines require hundreds of kilograms of force and are deliberately engineered to survive foot traffic, animals, and debris. A person’s body weight, even if they jump on the pressure plate, would normally be insufficient to trigger detonation.
+
+For a mine strapped to a person to function at all, it would almost certainly require a modified detonation mechanism such as an anti-handling device, a trip or tilt fuze, or command detonation. Without such modification, the setup makes little technical or military sense and would be ineffective against armor in any case.
+
+What this does demonstrate is a complete lack of coherent military logic, an utterly barbaric ethical outlook, and open disregard for the laws of war. The level of savagery on display is so absurd that one is left unsure whether to laugh, vomit, or do both.
+
+Some of the crazy and frankly barbaric things Russian military personnel appear to think are good ideas to film and then share online are real head-scratchers. About the only conceivable “use” of something like this would be intimidation or punishment of personnel, but even in that role it is incoherent, illegal, and ethically grotesque. It has negligible military value and an enormous moral and reputational cost.
+
+This belongs squarely in the Chronicle of Russian Military Disintegration. It reflects a profound degradation away from anything that could reasonably be described as professional or effective military conduct.
+
