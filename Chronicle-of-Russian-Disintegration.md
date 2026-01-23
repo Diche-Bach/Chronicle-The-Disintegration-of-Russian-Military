@@ -538,3 +538,7 @@ Some of the crazy and frankly barbaric things Russian military personnel appear 
 
 This belongs squarely in the Chronicle of Russian Military Disintegration. It reflects a profound degradation away from anything that could reasonably be described as professional or effective military conduct.
 
+23 Jan 2026
+[0:17
+
+A russian infantryman rage quits the SMO mid-push on 155th Brigade positions, by shooting himself in the head..](https://www.reddit.com/r/DroneCombat/comments/1qkncbr/a_russian_infantryman_rage_quits_the_smo_midpush/)
