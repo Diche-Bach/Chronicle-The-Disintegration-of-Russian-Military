@@ -556,3 +556,5 @@ He continues to mill about, handling debris and discarded objects, while the ope
 
 It is unclear whether this was an intentional act of self-harm, or a catastrophic lapse in judgment. Either way, the episode reflects profoundly poorly on the state of the Russian military: the deployment of isolated, inadequately equipped personnel; the apparent psychological collapse of an individual soldier under surveillance; and the lethal persistence of uncontrolled UXO in areas of Russian movement.
 
+25 Jan 2026 [NSFW/NSFL: Russian soldier on his knees, dropped a grenade under himself. Observed by a drone of Ukraine’s 110th Mechanized Brigade, Ternuvate direction. 25.01.2026](https://www.reddit.com/r/DroneCombat/comments/1qmtjzx/nsfwnsfl_russian_soldier_on_his_knees_dropped_a/)
+How to maximize personal suffering . . . unbelievable really . . .
