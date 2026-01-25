@@ -542,3 +542,17 @@ This belongs squarely in the Chronicle of Russian Military Disintegration. It re
 [0:17
 
 A russian infantryman rage quits the SMO mid-push on 155th Brigade positions, by shooting himself in the head..](https://www.reddit.com/r/DroneCombat/comments/1qkncbr/a_russian_infantryman_rage_quits_the_smo_midpush/)
+
+24 Jan 2026 [Upon seeing a drone above him, a russian hauling supplies wrote “loser” on the ground, and blew himself up on an UXO/mine. The 155th Mechanized Brigade](https://www.reddit.com/r/DroneCombat/comments/1qm2ke6/upon_seeing_a_drone_above_him_a_russian_hauling/)
+A Russian soldier, apparently alone and serving as a logistics mule, with no visible body armor, helmet, or weapon, realizes he is being monitored by a Ukrainian reconnaissance drone. The Ukrainian drone operator’s commentary suggests that the soldier appeared to be “on something,” indicating that he may have been under the influence of drugs or experiencing a mental disturbance. He stops pulling his wagon along the road toward his destination and begins to exhibit erratic behavior. Moving away from the wagon, he sits by the roadside, visibly distressed and uncertain how to proceed, repeatedly looking up at the drone as if attempting to communicate with the operator.
+
+He takes a stick and scratches «лох» (lokh) into the ground.
+
+In contemporary Russian slang, lokh is a blunt, common insult meaning loser, sucker, dupe, or contemptible fool. It carries a harsher connotation than the English “loser,” shading toward someone who has been fooled, humiliated, and morally diminished. In prison, street, and informal military contexts, it implies not merely failure but deserved inferiority. The Ukrainian editors’ translation as “loser” is accurate but slightly softened.
+
+The soldier then arranges fragments of slate into an unclear configuration on the roadway. The Ukrainian observer reports being unable to discern its meaning. When finished, the man steps back and spreads his arms wide, as if to say, “There it is,” or “That’s all I have.”
+
+He continues to mill about, handling debris and discarded objects, while the operator notes that he appeared intent on finding something to throw at the drone. Eventually, the soldier moves toward an object at a nearby crossroads, some distance from his abandoned wagon. He bends at the waist and reaches down to manipulate something on the ground. At that point, an unexploded ordnance or mine detonates. He is thrown to the ground, clearly wounded.
+
+It is unclear whether this was an intentional act of self-harm, or a catastrophic lapse in judgment. Either way, the episode reflects profoundly poorly on the state of the Russian military: the deployment of isolated, inadequately equipped personnel; the apparent psychological collapse of an individual soldier under surveillance; and the lethal persistence of uncontrolled UXO in areas of Russian movement.
+
