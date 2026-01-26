@@ -558,3 +558,6 @@ It is unclear whether this was an intentional act of self-harm, or a catastrophi
 
 25 Jan 2026 [NSFW/NSFL: Russian soldier on his knees, dropped a grenade under himself. Observed by a drone of Ukraine’s 110th Mechanized Brigade, Ternuvate direction. 25.01.2026](https://www.reddit.com/r/DroneCombat/comments/1qmtjzx/nsfwnsfl_russian_soldier_on_his_knees_dropped_a/)
 How to maximize personal suffering . . . unbelievable really . . .
+
+[Russian soldier shot himself after beeing wounded by Ukrainian drone operated by the 414th UAS Brigade Magyar's Birds. Pokrovsk direction. Published 25.01.2026 [NSFW/ NSFL]](https://www.reddit.com/r/DroneCombat/comments/1qmxvdr/russian_soldier_shot_himself_after_beeing_wounded/)
+
