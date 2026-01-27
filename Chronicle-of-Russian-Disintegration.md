@@ -563,3 +563,6 @@ How to maximize personal suffering . . . unbelievable really . . .
 
 26 Jan 2026
 [Russian troops torture their own soldiers by taping them upside down to trees in freezing cold and forcing them to eat snow as punishment. Published 26.01.2026 ](https://www.reddit.com/r/UkraineInvasionVideos/comments/1qnvkeg/russian_troops_torture_their_own_soldiers_by/)
+
+[NSFW/NSFL: Ukrainian drone observed a burning and wounded Russian soldier trying to shoot himself. Direction not disclosed. Published 26.01.2026](https://www.reddit.com/r/DroneCombat/comments/1qnvoiy/nsfwnsfl_ukrainian_drone_observed_a_burning_and/)
+
