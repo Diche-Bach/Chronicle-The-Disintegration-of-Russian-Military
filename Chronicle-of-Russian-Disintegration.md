@@ -561,3 +561,5 @@ How to maximize personal suffering . . . unbelievable really . . .
 
 [Russian soldier shot himself after beeing wounded by Ukrainian drone operated by the 414th UAS Brigade Magyar's Birds. Pokrovsk direction. Published 25.01.2026 [NSFW/ NSFL]](https://www.reddit.com/r/DroneCombat/comments/1qmxvdr/russian_soldier_shot_himself_after_beeing_wounded/)
 
+26 Jan 2026
+[Russian troops torture their own soldiers by taping them upside down to trees in freezing cold and forcing them to eat snow as punishment. Published 26.01.2026 ](https://www.reddit.com/r/UkraineInvasionVideos/comments/1qnvkeg/russian_troops_torture_their_own_soldiers_by/)
