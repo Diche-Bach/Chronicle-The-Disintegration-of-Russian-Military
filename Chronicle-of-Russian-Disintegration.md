@@ -566,3 +566,5 @@ How to maximize personal suffering . . . unbelievable really . . .
 
 [NSFW/NSFL: Ukrainian drone observed a burning and wounded Russian soldier trying to shoot himself. Direction not disclosed. Published 26.01.2026](https://www.reddit.com/r/DroneCombat/comments/1qnvoiy/nsfwnsfl_ukrainian_drone_observed_a_burning_and/)
 
+9 Feb 2026
+[NSFW: Russian commander beats one of his subordinates to improve morale. Published February 2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1qymyw2/nsfw_russian_commander_beats_one_of_his/)
