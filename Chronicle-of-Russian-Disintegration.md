@@ -568,3 +568,6 @@ How to maximize personal suffering . . . unbelievable really . . .
 
 9 Feb 2026
 [NSFW: Russian commander beats one of his subordinates to improve morale. Published February 2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1qymyw2/nsfw_russian_commander_beats_one_of_his/)
+
+11 Feb 2026
+[Yet another russian invader blew himself up with a grenade](https://www.reddit.com/r/UkraineInvasionVideos/comments/1r20j0n/yet_another_russian_invader_blew_himself_up_with/)
