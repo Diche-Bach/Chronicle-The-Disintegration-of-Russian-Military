@@ -571,3 +571,7 @@ How to maximize personal suffering . . . unbelievable really . . .
 
 11 Feb 2026
 [Yet another russian invader blew himself up with a grenade](https://www.reddit.com/r/UkraineInvasionVideos/comments/1r20j0n/yet_another_russian_invader_blew_himself_up_with/)
+
+[(Archive) A Ukrainian Drone Operator from an Unknown Unit Observes a Russian soldier Committing Suicide with a Grenade Under His Body Armor (Published on October 23, 2025)](https://www.reddit.com/r/DroneCombat/comments/1r2b055/archive_a_ukrainian_drone_operator_from_an/)
+Based on the title this video is ostensibly from 23 Oct 2025. It is possible that it is a repeat of a video that is already included above, but I don't think so. I do not recognize the footage.
+
