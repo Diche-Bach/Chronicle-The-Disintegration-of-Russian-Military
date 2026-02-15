@@ -575,3 +575,4 @@ How to maximize personal suffering . . . unbelievable really . . .
 [(Archive) A Ukrainian Drone Operator from an Unknown Unit Observes a Russian soldier Committing Suicide with a Grenade Under His Body Armor (Published on October 23, 2025)](https://www.reddit.com/r/DroneCombat/comments/1r2b055/archive_a_ukrainian_drone_operator_from_an/)
 Based on the title this video is ostensibly from 23 Oct 2025. It is possible that it is a repeat of a video that is already included above, but I don't think so. I do not recognize the footage.
 
+15 Feb 2026 [Punishment in the russian army for drinking and desertion](https://www.reddit.com/r/UkraineInvasionVideos/comments/1r5bvvh/punishment_in_the_russian_army_for_drinking_and/)
