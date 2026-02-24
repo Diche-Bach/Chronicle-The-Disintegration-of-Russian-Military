@@ -576,3 +576,21 @@ How to maximize personal suffering . . . unbelievable really . . .
 Based on the title this video is ostensibly from 23 Oct 2025. It is possible that it is a repeat of a video that is already included above, but I don't think so. I do not recognize the footage.
 
 15 Feb 2026 [Punishment in the russian army for drinking and desertion](https://www.reddit.com/r/UkraineInvasionVideos/comments/1r5bvvh/punishment_in_the_russian_army_for_drinking_and/)
+
+24 Feb 2026 [A russian invader beheaded himself with a grenade after being struck and wounded by an FPV drone from Ukraine’s 414th UAV Brigade “Birds of Magyar.” 24.02.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1rdgx7f/a_russian_invader_beheaded_himself_with_a_grenade/)
+
+[–]Abject-Interaction35
+ 
+[+19] 7 points 3 hours ago 
+
+Tucked it under his lid to direct the blast properly. He died well. He didn't make a bad job of it.
+
+    permalink save reportreplied
+
+[–]Diche_Bach 1 point just now 
+
+Also a remarkably good sport, waving at the camera man "Okay, you got me. I'm out . . ."
+
+Still, it counts as a suicide, and his situation was hopeless not just because of his injuries but because of how desperately overstretched Putin's horde is deployed in its never-ending Ouroboros Army offensive . . .
+
+Added to the Chronicle of Russian Military Disintegration.
