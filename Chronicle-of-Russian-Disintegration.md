@@ -594,3 +594,5 @@ Also a remarkably good sport, waving at the camera man "Okay, you got me. I'm ou
 Still, it counts as a suicide, and his situation was hopeless not just because of his injuries but because of how desperately overstretched Putin's horde is deployed in its never-ending Ouroboros Army offensive . . .
 
 Added to the Chronicle of Russian Military Disintegration.
+
+8 March 2026 [NSFW/NSFL: Ukrainian drone observed a Russian soldier blowing himself up with a handgrenade. Date and location not disclosed. Posted 08.03.2026](https://www.reddit.com/r/DroneCombat/comments/1robgl8/nsfwnsfl_ukrainian_drone_observed_a_russian/)
