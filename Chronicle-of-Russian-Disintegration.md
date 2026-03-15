@@ -595,4 +595,4 @@ Still, it counts as a suicide, and his situation was hopeless not just because o
 
 Added to the Chronicle of Russian Military Disintegration.
 
-
+14 March 2026 [Russian soldier shot himself after beeing hit by Ukrainian FPV drone. Observed by 155th Mechanized Brigade's drone operators. Pokrovsk direction. 13.03.2026. NSFW/NSFL](https://www.reddit.com/r/DroneCombat/comments/1rtvu8h/russian_soldier_shot_himself_after_beeing_hit_by/)
