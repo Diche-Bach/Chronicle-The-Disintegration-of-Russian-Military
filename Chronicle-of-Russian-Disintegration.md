@@ -598,3 +598,5 @@ Added to the Chronicle of Russian Military Disintegration.
 14 March 2026 [Russian soldier shot himself after beeing hit by Ukrainian FPV drone. Observed by 155th Mechanized Brigade's drone operators. Pokrovsk direction. 13.03.2026. NSFW/NSFL](https://www.reddit.com/r/DroneCombat/comments/1rtvu8h/russian_soldier_shot_himself_after_beeing_hit_by/)
 
 21 March 2026 [NSFW/NSFL: A russian soldier, wounded by Ukrainian FPV drone, attempted to shoot himself and succeeded only on the second attempt. Ternuvate direction. Ukrainian 424th UAS Battalion “Svarog.” 21.03.2026](https://www.reddit.com/r/DroneCombat/comments/1rzthxq/nsfwnsfl_a_russian_soldier_wounded_by_ukrainian/)
+
+22 March 2026 [NSFW/NSFL: A Russian soldier shot his wounded comrade and then himself after beeing hit by Ukrainian drones. Huliaipole Ternuvate direction. Observed by Ukrainian 475th Separate Assault Regiment CODE 9.2. Published 22.03.2026](https://www.reddit.com/r/DroneCombat/comments/1s0m5bj/nsfwnsfl_a_russian_soldier_shot_his_wounded/)
