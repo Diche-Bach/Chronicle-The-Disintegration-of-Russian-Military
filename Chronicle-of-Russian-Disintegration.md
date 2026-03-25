@@ -600,3 +600,5 @@ Added to the Chronicle of Russian Military Disintegration.
 21 March 2026 [NSFW/NSFL: A russian soldier, wounded by Ukrainian FPV drone, attempted to shoot himself and succeeded only on the second attempt. Ternuvate direction. Ukrainian 424th UAS Battalion “Svarog.” 21.03.2026](https://www.reddit.com/r/DroneCombat/comments/1rzthxq/nsfwnsfl_a_russian_soldier_wounded_by_ukrainian/)
 
 22 March 2026 [NSFW/NSFL: A Russian soldier shot his wounded comrade and then himself after beeing hit by Ukrainian drones. Huliaipole Ternuvate direction. Observed by Ukrainian 475th Separate Assault Regiment CODE 9.2. Published 22.03.2026](https://www.reddit.com/r/DroneCombat/comments/1s0m5bj/nsfwnsfl_a_russian_soldier_shot_his_wounded/)
+
+25 March 2026 [One of the most widespread methods of punishment in the russian army is tying naked servicemen to trees or poles and leaving them there overnight, or more, in the freezing cold. The video shows four naked russian invaders tied to trees in a forest as punishment for drinking. Published 23.03.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s3d4k2/one_of_the_most_widespread_methods_of_punishment/)
