@@ -604,3 +604,9 @@ Added to the Chronicle of Russian Military Disintegration.
 25 March 2026 [One of the most widespread methods of punishment in the russian army is tying naked servicemen to trees or poles and leaving them there overnight, or more, in the freezing cold. The video shows four naked russian invaders tied to trees in a forest as punishment for drinking. Published 23.03.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s3d4k2/one_of_the_most_widespread_methods_of_punishment/)
 
 26 March 2026 [A russian invader who refused to take part in fundraising for drones for his unit and to donate his personal savings is being wipped with a branch by his superior.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s4arfs/a_russian_invader_who_refused_to_take_part_in/)
+
+30 March 2026 [0:46
+
+Russian soldier abandoned his wounded comrade. Observed by Ukrainian 225th Separate Assault Regiment. Southeastern front. Published 30.03.2026](https://www.reddit.com/r/DroneCombat/comments/1s7z885/russian_soldier_abandoned_his_wounded_comrade/)
+
+
