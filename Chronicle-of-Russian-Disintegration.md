@@ -606,7 +606,6 @@ Added to the Chronicle of Russian Military Disintegration.
 26 March 2026 [A russian invader who refused to take part in fundraising for drones for his unit and to donate his personal savings is being wipped with a branch by his superior.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s4arfs/a_russian_invader_who_refused_to_take_part_in/)
 
 30 March 2026 [0:46
-
 Russian soldier abandoned his wounded comrade. Observed by Ukrainian 225th Separate Assault Regiment. Southeastern front. Published 30.03.2026](https://www.reddit.com/r/DroneCombat/comments/1s7z885/russian_soldier_abandoned_his_wounded_comrade/)
 
-
+31 March 2025 [A russian invader finished himself off by shooting himself in the mouth with a rifle after being wounded by a drone-dropped grenade on the Zaporizhzhia front. March, 2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s8ytmv/a_russian_invader_finished_himself_off_by/)
