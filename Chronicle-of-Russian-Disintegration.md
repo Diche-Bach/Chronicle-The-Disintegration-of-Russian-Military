@@ -608,8 +608,8 @@ Added to the Chronicle of Russian Military Disintegration.
 30 March 2026 [0:46
 Russian soldier abandoned his wounded comrade. Observed by Ukrainian 225th Separate Assault Regiment. Southeastern front. Published 30.03.2026](https://www.reddit.com/r/DroneCombat/comments/1s7z885/russian_soldier_abandoned_his_wounded_comrade/)
 
-31 March 2025 [A russian invader finished himself off by shooting himself in the mouth with a rifle after being wounded by a drone-dropped grenade on the Zaporizhzhia front. March, 2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s8ytmv/a_russian_invader_finished_himself_off_by/)
+31 March 2026 [A russian invader finished himself off by shooting himself in the mouth with a rifle after being wounded by a drone-dropped grenade on the Zaporizhzhia front. March, 2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s8ytmv/a_russian_invader_finished_himself_off_by/)
 
-1 April 2025 [A russian invader attempted to blow himself up with a grenade, but an FPV drone got to him first, the occupier was torn in half. Ukrainian 425th Assault Regiment “Skala.” 01.04.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s9ko21/a_russian_invader_attempted_to_blow_himself_up/)
+1 April 2026 [A russian invader attempted to blow himself up with a grenade, but an FPV drone got to him first, the occupier was torn in half. Ukrainian 425th Assault Regiment “Skala.” 01.04.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s9ko21/a_russian_invader_attempted_to_blow_himself_up/)
 Out of shape, ill-equipped, wounded, and alone is not the look of a professional army.
 
