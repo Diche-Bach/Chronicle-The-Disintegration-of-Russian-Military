@@ -613,3 +613,5 @@ Russian soldier abandoned his wounded comrade. Observed by Ukrainian 225th Separ
 1 April 2026 [A russian invader attempted to blow himself up with a grenade, but an FPV drone got to him first, the occupier was torn in half. Ukrainian 425th Assault Regiment “Skala.” 01.04.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s9ko21/a_russian_invader_attempted_to_blow_himself_up/)
 Out of shape, ill-equipped, wounded, and alone is not the look of a professional army.
 
+[Occupier single-handedly triggered detonation of Ukrainian kamikaze drone that had failed to activate upon impact Source: https://censor.net/en/v3608283](https://censor.net/en/videonews/3608283/occupier-s-suicide-with-an-fpv-drone-in-his-hands-censor-net)
+above discovered here: [A russian invader got incredibly lucky when the drone that hit him didn’t go off, yet he didn’t panic, picked it up and triggered it himself](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s9nk6n/a_russian_invader_got_incredibly_lucky_when_the/)
