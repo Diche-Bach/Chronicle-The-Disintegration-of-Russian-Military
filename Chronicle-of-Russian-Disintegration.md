@@ -575,9 +575,11 @@ How to maximize personal suffering . . . unbelievable really . . .
 [(Archive) A Ukrainian Drone Operator from an Unknown Unit Observes a Russian soldier Committing Suicide with a Grenade Under His Body Armor (Published on October 23, 2025)](https://www.reddit.com/r/DroneCombat/comments/1r2b055/archive_a_ukrainian_drone_operator_from_an/)
 Based on the title this video is ostensibly from 23 Oct 2025. It is possible that it is a repeat of a video that is already included above, but I don't think so. I do not recognize the footage.
 
-15 Feb 2026 [Punishment in the russian army for drinking and desertion](https://www.reddit.com/r/UkraineInvasionVideos/comments/1r5bvvh/punishment_in_the_russian_army_for_drinking_and/)
+15 Feb 2026
+[Punishment in the russian army for drinking and desertion](https://www.reddit.com/r/UkraineInvasionVideos/comments/1r5bvvh/punishment_in_the_russian_army_for_drinking_and/)
 
-24 Feb 2026 [A russian invader beheaded himself with a grenade after being struck and wounded by an FPV drone from Ukraine’s 414th UAV Brigade “Birds of Magyar.” 24.02.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1rdgx7f/a_russian_invader_beheaded_himself_with_a_grenade/)
+24 Feb 2026
+[A russian invader beheaded himself with a grenade after being struck and wounded by an FPV drone from Ukraine’s 414th UAV Brigade “Birds of Magyar.” 24.02.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1rdgx7f/a_russian_invader_beheaded_himself_with_a_grenade/)
 
 [–]Abject-Interaction35
  
@@ -595,23 +597,41 @@ Still, it counts as a suicide, and his situation was hopeless not just because o
 
 Added to the Chronicle of Russian Military Disintegration.
 
-14 March 2026 [Russian soldier shot himself after beeing hit by Ukrainian FPV drone. Observed by 155th Mechanized Brigade's drone operators. Pokrovsk direction. 13.03.2026. NSFW/NSFL](https://www.reddit.com/r/DroneCombat/comments/1rtvu8h/russian_soldier_shot_himself_after_beeing_hit_by/)
+14 March 2026
+[Russian soldier shot himself after beeing hit by Ukrainian FPV drone. Observed by 155th Mechanized Brigade's drone operators. Pokrovsk direction. 13.03.2026. NSFW/NSFL](https://www.reddit.com/r/DroneCombat/comments/1rtvu8h/russian_soldier_shot_himself_after_beeing_hit_by/)
 
 21 March 2026 [NSFW/NSFL: A russian soldier, wounded by Ukrainian FPV drone, attempted to shoot himself and succeeded only on the second attempt. Ternuvate direction. Ukrainian 424th UAS Battalion “Svarog.” 21.03.2026](https://www.reddit.com/r/DroneCombat/comments/1rzthxq/nsfwnsfl_a_russian_soldier_wounded_by_ukrainian/)
 
-22 March 2026 [NSFW/NSFL: A Russian soldier shot his wounded comrade and then himself after beeing hit by Ukrainian drones. Huliaipole Ternuvate direction. Observed by Ukrainian 475th Separate Assault Regiment CODE 9.2. Published 22.03.2026](https://www.reddit.com/r/DroneCombat/comments/1s0m5bj/nsfwnsfl_a_russian_soldier_shot_his_wounded/)
+22 March 2026
+[NSFW/NSFL: A Russian soldier shot his wounded comrade and then himself after beeing hit by Ukrainian drones. Huliaipole Ternuvate direction. Observed by Ukrainian 475th Separate Assault Regiment CODE 9.2. Published 22.03.2026](https://www.reddit.com/r/DroneCombat/comments/1s0m5bj/nsfwnsfl_a_russian_soldier_shot_his_wounded/)
 
-25 March 2026 [One of the most widespread methods of punishment in the russian army is tying naked servicemen to trees or poles and leaving them there overnight, or more, in the freezing cold. The video shows four naked russian invaders tied to trees in a forest as punishment for drinking. Published 23.03.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s3d4k2/one_of_the_most_widespread_methods_of_punishment/)
+25 March 2026
+[One of the most widespread methods of punishment in the russian army is tying naked servicemen to trees or poles and leaving them there overnight, or more, in the freezing cold. The video shows four naked russian invaders tied to trees in a forest as punishment for drinking. Published 23.03.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s3d4k2/one_of_the_most_widespread_methods_of_punishment/)
 
-26 March 2026 [A russian invader who refused to take part in fundraising for drones for his unit and to donate his personal savings is being wipped with a branch by his superior.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s4arfs/a_russian_invader_who_refused_to_take_part_in/)
+26 March 2026
+[A russian invader who refused to take part in fundraising for drones for his unit and to donate his personal savings is being wipped with a branch by his superior.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s4arfs/a_russian_invader_who_refused_to_take_part_in/)
 
 30 March 2026 [0:46
 Russian soldier abandoned his wounded comrade. Observed by Ukrainian 225th Separate Assault Regiment. Southeastern front. Published 30.03.2026](https://www.reddit.com/r/DroneCombat/comments/1s7z885/russian_soldier_abandoned_his_wounded_comrade/)
 
-31 March 2026 [A russian invader finished himself off by shooting himself in the mouth with a rifle after being wounded by a drone-dropped grenade on the Zaporizhzhia front. March, 2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s8ytmv/a_russian_invader_finished_himself_off_by/)
+31 March 2026
+[A russian invader finished himself off by shooting himself in the mouth with a rifle after being wounded by a drone-dropped grenade on the Zaporizhzhia front. March, 2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s8ytmv/a_russian_invader_finished_himself_off_by/)
 
-1 April 2026 [A russian invader attempted to blow himself up with a grenade, but an FPV drone got to him first, the occupier was torn in half. Ukrainian 425th Assault Regiment “Skala.” 01.04.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s9ko21/a_russian_invader_attempted_to_blow_himself_up/)
+1 April 2026
+[A russian invader attempted to blow himself up with a grenade, but an FPV drone got to him first, the occupier was torn in half. Ukrainian 425th Assault Regiment “Skala.” 01.04.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s9ko21/a_russian_invader_attempted_to_blow_himself_up/)
 Out of shape, ill-equipped, wounded, and alone is not the look of a professional army.
 
 [Occupier single-handedly triggered detonation of Ukrainian kamikaze drone that had failed to activate upon impact Source: https://censor.net/en/v3608283](https://censor.net/en/videonews/3608283/occupier-s-suicide-with-an-fpv-drone-in-his-hands-censor-net)
 above discovered here: [A russian invader got incredibly lucky when the drone that hit him didn’t go off, yet he didn’t panic, picked it up and triggered it himself](https://www.reddit.com/r/UkraineInvasionVideos/comments/1s9nk6n/a_russian_invader_got_incredibly_lucky_when_the/)
+
+10 April 2026
+[NSFW/NSFL: Russian soldier, wounded by Ukrainian drone, shot himself. Observed by drones of the 425th Separate Assault Regiment SKELIA. Location not disclosed. Published 10.04.2026](https://www.reddit.com/r/DroneCombat/comments/1shp6ky/nsfwnsfl_russian_soldier_wounded_by_ukrainian/)
+
+[Fresh replenishment in the ranks of russian contract soldiers, includes marginalized individuals with missing fingers, alcoholics, drug addicts, and prisoners, all declared fit for service. Putin’s "new elite", sent to be slaughtered in Ukraine](https://www.reddit.com/r/UkraineInvasionVideos/comments/1shn38b/fresh_replenishment_in_the_ranks_of_russian/)
+I have heard it said that the employment of personnel suffering such profound deficiencies for military service is in some way "part of Putin's plan," i.e., "ridding" Russia of its "undesirable" populations.
+
+On the contrary, these are ongoing signs of Russia's war of self-destruction.
+
+Russia is on day ~1500 of a war which was planned to be completed in something like 30 days; the strategic silhouette of this fact is unmistakable, no matter how much pro-Putin voices might deny it.
+
+Russia is fighting a war it cannot win, but it also cannot end, because ending it before it has achieved something which can plausibly be framed as "victory" (e.g., the conquest of all of Donetsk at minimum) is very likely to lead to the end of the Putin regime. The war became a war to perpetuate Putin's "legitimacy" many years ago and that is the only reason he persists in it, and that is why these men are being mustered: cannon fodder to buy Putin a bit more time in power.
