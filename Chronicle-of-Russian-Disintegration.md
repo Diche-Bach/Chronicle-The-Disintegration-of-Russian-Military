@@ -635,3 +635,42 @@ On the contrary, these are ongoing signs of Russia's war of self-destruction.
 Russia is on day ~1500 of a war which was planned to be completed in something like 30 days; the strategic silhouette of this fact is unmistakable, no matter how much pro-Putin voices might deny it.
 
 Russia is fighting a war it cannot win, but it also cannot end, because ending it before it has achieved something which can plausibly be framed as "victory" (e.g., the conquest of all of Donetsk at minimum) is very likely to lead to the end of the Putin regime. The war became a war to perpetuate Putin's "legitimacy" many years ago and that is the only reason he persists in it, and that is why these men are being mustered: cannon fodder to buy Putin a bit more time in power.
+
+15 April 2026
+[(NSFW) Ukraine's 425th Sep. Assault Regiment "Skala" repelled a Russian infantryman using FPV drones, with some munitions apparently cooking off as well. [TG @skala425] April 15, 2026](https://www.reddit.com/r/DroneCombat/comments/1sm6fow/nsfw_ukraines_425th_sep_assault_regiment_skala/)
+This one is worth walking through carefully. There are a lot of detonations and unusual elements to this one (e.g., that fibrous material that almost looks like a shredded parachute).
+
+1.First depicted drone strike to the legs 0:08
+
+2.Second depicted drone strike to the head 0:20
+
+3.Anomalous detonation near the upper body (location where the head previously was attached) 0:26 -- I'm guessing that this was a grenade.
+
+4.Third depicted drone detonation (seemingly) some distance from the corpse. It appears to occur without the drone making contact with the ground or the corpse, perhaps a radio triggered detonation for some reason.
+
+5.Small secondary detonation of some sort before the video ends.
+
+I suppose that the fibrous material present at the outset is most likely fiber-optic from previous strikes against the target by fiber-optic drones. That makes sense now that I think about it; when the fiber optic drone detonates whatever is left in the spool is liable to spew out like that. I have just never seen it in that form before.
+
+The subject appears to have been wounded before the segment begins. There is at least one if not two detonation marks above and to the left of where he is laying when the video begins; all of which is consistent with the target having been wounded by at least one if not two fiber-optic drone strikes before this video begins, and would account for the clumps of fibrous material.
+
+One of detonations shown in the video (number 3 in the list below) appears smaller and not associated with a drone; this suggests that there was an attempted suicide which ensued sometime between the first drone strike depicted here and the second.
+
+The second drone strike caused immediate lethal damage but the smaller detonation enumerated as 3 in the list above took place seconds after the second drone strike. That #3 detonation is roughly in the area where a grenade would have been handled had the subject armed one at some point.
+
+I don't see any obvious indications of him deploying a grenade. But the the third detonation which occurs in the course of this video does not appear to be associated with a drone, nor (seemingly) a battery pack.
+
+The third drone strike depicted here (detonation #4 in the list above) detonates near the corpse after the subject has been decapitated by the second drone strike.
+
+The operators definitely neutralized that invader for certain: +1 Cargo 200 confirmed.
+
+I see some commenters in this thread criticizing Ukraine's use of force here. I don't see anything objectionable about Ukrainian use of force in this video.
+
+The subject was a participant in a genocidal invasion in which hundreds of thousands of Ukrainians have been killed and wounded, hundreds of billions of dollars worth of property damage have been done, millions of lives have been turned upside down, vast tracts of land and ecosystems have been ravaged. ANYONE who serves Putin's war effort can legitimately be targeted with lethal force and that is precisely what took place here: an invader was neutralized.
+
+Indeed, one could argue contrarily that Ukraine showed mercy to this individual by insuring beyond any shadow of doubt that his suffering was brought to an end. He had to be neutralized, and there was a reasonable probability that the first strike depicted--or perhaps even the #-1 and #-2 strikes which preceded those shown here--accomplished that goal. But the individual would likely have taken many minutes if not hours or even days to perish if any of the wounds from those first three strikes had been mortal wounds. Instead, his suffering ended in less than a minute.
+
+It is worth noting: once a munition-delivering FPV drone is armed, it cannot safely return to base, it must be detonated at a safe distance from Ukrainian personnel. This would explain why the third drone detonation depicted here (explosion #4 in the list) occurred and possibly why it occurred without actually colliding with the target. The operator observed that the target was clearly dead, and used the remote detonation trigger instead.
+
+The resolution of the video does not allow confirmation of that final sequence of events with certainty but it looks plausible and it fits with Ukraine's consistent adherence to the laws of war.
+
