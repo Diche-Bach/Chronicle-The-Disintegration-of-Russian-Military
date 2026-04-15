@@ -676,7 +676,9 @@ Indeed, one could argue contrarily that Ukraine showed mercy to this individual 
 
 It is worth noting: once a munition-delivering FPV drone is armed, it cannot safely return to base, it must be detonated at a safe distance from Ukrainian personnel. This would explain why the third drone detonation depicted here (explosion #4 in the list) occurred and possibly why it occurred without actually colliding with the target. The operator observed that the target was clearly dead, and used the remote detonation trigger instead.
 
-The resolution of the video does not allow confirmation of that final sequence of events with certainty but it looks plausible and it fits with Ukraine's consistent adherence to the laws of war.
+The resolution of the video does not allow confirmation of that final sequence of events with certainty but it looks plausible and it fits with Ukraine's consistent adherence to the laws of war and their humane treatment of Russian POWs.
 
 The other interesting thing about this segment is that it is not just a demonstration of Ukrainian forces professionalism, ample strike capacity and adherence to the laws of war; the video is also quite effective information warfare. The fact that three separate drone strikes are depicted and that a more careful reflection on the details of the video suggests quite strongly that a grand total of five drones were expended to neutralize this invader is likely to be a very sobering reminder to all those serving Putin and those who are considering serving his regime, that Ukraine is intent on fighting as fiercely as necessary to achieve victory.
+
+If the message which the video could be said to convey visually is put to words it is something like: "You see how many drones we have to spare for a single target? Join Putin's horde and you'll get your fair share as well."
 
