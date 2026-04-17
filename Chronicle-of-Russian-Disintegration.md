@@ -644,13 +644,13 @@ This one is worth walking through carefully. There are a lot of detonations and 
 
 1.First depicted drone strike to the legs 0:08
 
-2.Second depicted drone strike to the head 0:20
+2.Second depicted drone strike to the head 0:21
 
-3.Anomalous detonation near the upper body (location where the head previously was attached) 0:26 -- I'm guessing that this was a grenade.
+3.Anomalous detonation near the upper body (location where the head previously was attached) 0:27 -- I'm guessing that this was a grenade.
 
-4.Third depicted drone detonation (seemingly) some distance from the corpse. It appears to occur without the drone making contact with the ground or the corpse, perhaps a remote-control triggered detonation for some reason.
+4.Third depicted drone detonation (seemingly) some distance from the corpse 0:31. It appears to occur without the drone making contact with the ground or the corpse, perhaps a remote-control triggered detonation for some reason.
 
-5.Small secondary detonation of some sort before the video ends.
+5.Small secondary detonation of some sort before the video ends 0:33.
 
 -=-End of List of Detonations-=-
 
@@ -681,4 +681,23 @@ The resolution of the video does not allow confirmation of that final sequence o
 The other interesting thing about this segment is that it is not just a demonstration of Ukrainian forces professionalism, ample strike capacity and adherence to the laws of war; the video is also quite effective information warfare. The fact that three separate drone strikes are depicted and that a more careful reflection on the details of the video suggests quite strongly that a grand total of five drones were expended to neutralize this invader is likely to be a very sobering reminder to all those serving Putin and those who are considering serving his regime, that Ukraine is intent on fighting as fiercely as necessary to achieve victory.
 
 If the message which the video could be said to convey visually is put to words it is something like: "You see how many drones we have to spare for a single target? Join Putin's horde and you'll get your fair share as well."
+
+Added to the Chronicle of Russian Military Disintegration.
+
+17 April 2026
+Speaking from having watched a few hundred of these, what you’re seeing may not be irrational. It may be a kind of grim battlefield logic.
+
+Evading might slightly improve your odds of avoiding a hit. But the more likely outcome is that you are still struck, just not immediately killed. The effective “wounding radius” for many of these munitions is plausibly several meters, and given the speed, agility, and operator competence of FPV drones, even a fit and unencumbered person is unlikely to clear that distance in time.
+
+Direct hits are catastrophic, as seen here. Limb loss, severe shock, and rapid blood loss are likely outcomes even in near-miss scenarios. Anyone wounded in that 15 to 25 km “drone kill zone,” especially someone operating far forward like these infiltrators or logistics runners, is unlikely to be evacuated and may die regardless.
+
+In that context, freezing may not reflect a belief that the drone cannot see them, nor a realistic attempt to avoid being hit. It may instead be a last calculation: if a strike is inevitable, a clean, immediately lethal hit may be preferable to a survivable wound followed by prolonged death.
+
+I have not seen clear evidence that this is formal doctrine. It is more plausibly improvised behavior under extreme conditions. At the same time, it is also possible that some soldiers believe holding still might reduce the chance of detection. From video alone, it is impossible to distinguish between these motives, and even postwar accounts will be biased toward survivors.
+
+In this case, the sequence is ambiguous. He appears to hear the drone several seconds before impact, kneels, and then begins to bring his rifle up. It may be that multiple impulses were in play at once: hold still and hope it misses, attempt to engage it, or simply accept that movement would not change the outcome. Moments later, the strike resolves the question.
+
+What is frankly insane, and indicative of the desperation of the Putin regime is that it continues to expend lives in this way, simply to maintain its ever slow pace of territorial seizure. That is not the sign of a potent military on its way to victory. It is the sign of a weakened military undergoing slow disintegration.
+
+Added to the [Chronicle of Russian Military Disintegration](https://github.com/Diche-Bach/Chronicle-The-Disintegration-of-Russian-Military/blob/main/Chronicle-of-Russian-Disintegration.md).
 
