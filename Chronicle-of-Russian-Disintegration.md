@@ -684,7 +684,7 @@ If the message which the video could be said to convey visually is put to words 
 
 Added to the Chronicle of Russian Military Disintegration.
 
-17 April 2026
+17 April 2026 [FPV drone hits Russian soldier walking through open field. Ukraine's 414th Strike UAV Brigade, published April 17th 2026.](https://www.reddit.com/r/CombatFootage/comments/1sntb8u/fpv_drone_hits_russian_soldier_walking_through/)
 Speaking from having watched a few hundred of these, what you’re seeing may not be irrational. It may be a kind of grim battlefield logic.
 
 Evading might slightly improve your odds of avoiding a hit. But the more likely outcome is that you are still struck, just not immediately killed. The effective “wounding radius” for many of these munitions is plausibly several meters, and given the speed, agility, and operator competence of FPV drones, even a fit and unencumbered person is unlikely to clear that distance in time.
