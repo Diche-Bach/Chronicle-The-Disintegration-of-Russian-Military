@@ -685,15 +685,17 @@ If the message which the video could be said to convey visually is put to words 
 Added to the Chronicle of Russian Military Disintegration.
 
 17 April 2026 [FPV drone hits Russian soldier walking through open field. Ukraine's 414th Strike UAV Brigade, published April 17th 2026.](https://www.reddit.com/r/CombatFootage/comments/1sntb8u/fpv_drone_hits_russian_soldier_walking_through/)
-Speaking from having watched a few hundred of these, what you’re seeing may not be irrational. It may be a kind of grim battlefield logic.
+Speaking from having watched a few hundred of these, what you’re seeing may not be irrational. Rather, a kind of grim battlefield logic.
 
 Evading might slightly improve your odds of avoiding a hit. But the more likely outcome is that you are still struck, just not immediately killed. The effective “wounding radius” for many of these munitions is plausibly several meters, and given the speed, agility, and operator competence of FPV drones, even a fit and unencumbered person is unlikely to clear that distance in time.
 
-Direct hits are catastrophic, as seen here. Limb loss, severe shock, and rapid blood loss are likely outcomes even in near-miss scenarios. Anyone wounded in that 15 to 25 km “drone kill zone,” especially someone operating far forward like these infiltrators or logistics runners, is unlikely to be evacuated and may die regardless.
+Direct hits are catastrophic, as seen here. Limb loss, severe shock, and rapid blood loss are likely outcomes even in near-miss scenarios. Anyone wounded in that 15 to 25 km “drone kill zone,” especially someone operating far forward like these infiltrators / logistics mules, is unlikely to be evacuated and may die regardless.
 
-In that context, freezing may not reflect a belief that the drone cannot see them, nor a realistic attempt to avoid being hit. It may instead be a last calculation: if a strike is inevitable, a clean, immediately lethal hit may be preferable to a survivable wound followed by prolonged death.
+In that context, freezing may not reflect a belief that the drone cannot see them, nor a realistic attempt to avoid being hit. It could reflect a kind of acceptance of their fate: if a strike is virtually inevitable, a clean, immediately lethal hit is preferable to a survivable wound followed by prolonged death.
 
-I have not seen clear evidence that this is formal doctrine. It is more plausibly improvised behavior under extreme conditions. At the same time, it is also possible that some soldiers believe holding still might reduce the chance of detection. From video alone, it is impossible to distinguish between these motives, and even postwar accounts will be biased toward survivors.
+I have not seen clear evidence that this is formal doctrine, there I have seen videos of Russian trainers teaching the freeze response seemingly as a form of crypsis--that in itself might also reflect the same grim logic: if seen evading is only likely to result in prolonged suffering. Even if that training has been deprecated, it may still contribute to this kind of improvised behavior under extreme conditions. From video alone, it is impossible to distinguish between these motives, and even postwar accounts will be biased toward survivors.
+
+But the point remains: the only "reliable" method to survive one of these attacks unscathed is to disable the drone at a good distance, at least 5m and ideally >10m. I've seen plenty of videos of soldiers managing to do that, and that is in part a manifestation of readiness, training, and ability but also luck. If you are tired, alone, encumbered and on a 15 or 20km ruck you automatically are less ready than if you are the designated anti-drone member in a team.
 
 In this case, the sequence is ambiguous. He appears to hear the drone several seconds before impact, kneels, and then begins to bring his rifle up. It may be that multiple impulses were in play at once: hold still and hope it misses, attempt to engage it, or simply accept that movement would not change the outcome. Moments later, the strike resolves the question.
 
