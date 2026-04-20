@@ -703,3 +703,10 @@ What is frankly insane, and indicative of the desperation of the Putin regime, i
 
 Added to the Chronicle of Russian Military Disintegration.
 
+20 April 2026 [Unarmed, limping Russian soldier end up struck directly, launching soldier body onto rooftop. Verkhyna Tersa [Geolocation: 47.685840, 36.085179]\](https://www.reddit.com/r/CombatFootage/comments/1sqy3cc/unarmed_limping_russian_soldier_end_up_struck/)
+No weapon. No armor or LBE. No PPE whatsoever. Appears to be wearing essentially rags. Already injured. Seemingly alone in a battlefield. Attacked by a Ukrainian FPV drone carrying a payload so potent that it transects him below the navel, sending the lower limbs flying and launching the upper body on top of a bus stop roof. His corpse may well lay there for months; years even.
+
+It has become so common to see scenes like this that none of the top comments even mention it, but this individual was essentially a hobo soldier. I don't doubt that there are still plenty of reasonably trained and equipped personnel in the Russian military. Nonetheless, they are so desperate for personnel to extend their territorial seizure just a few more meters that this has become common.
+
+If you could go back in time to late 2021 or even late 2022 and show this video to military analysts and explain that in four years this will be a common scene, that the Russian military has largely become a hobo army, you would have been laughed at, even by the pro-Western and skeptical analysts.
+
