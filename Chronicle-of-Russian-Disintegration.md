@@ -710,3 +710,4 @@ It has become so common to see scenes like this that none of the top comments ev
 
 If you could go back in time to late 2021 or even late 2022 and show this video to military analysts and explain that in four years this will be a common scene, that the Russian military has largely become a hobo army, you would have been laughed at, even by the pro-Western and skeptical analysts.
 
+22 April 2026 [A russian invader recorded his final goodbye before shooting himself in the head through the chin](https://www.reddit.com/r/UkraineInvasionVideos/comments/1sstxje/a_russian_invader_recorded_his_final_goodbye/)
