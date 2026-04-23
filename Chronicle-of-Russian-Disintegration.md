@@ -713,3 +713,5 @@ If you could go back in time to late 2021 or even late 2022 and show this video 
 22 April 2026 [A russian invader recorded his final goodbye before shooting himself in the head through the chin](https://www.reddit.com/r/UkraineInvasionVideos/comments/1sstxje/a_russian_invader_recorded_his_final_goodbye/)
 
 23 April 2026 [Ukraine's 414th USF Brigade "Madyar's Birds" spotted and struck a Russian infantryman on the move, who appears to acknowledge the hopelessness of the situation. (NSFW) [TG @robert_magyar] April 22, 2026](https://www.reddit.com/r/DroneCombat/comments/1st95lq/ukraines_414th_usf_brigade_madyars_birds_spotted/)
+
+[A russian invader was forced to record a message to his wife while naked in a pit. His commander is demanding 300,000 rubles (~$4,000), threatening continued abuse and the breaking of his fingers if the money is not paid.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1stkjuc/a_russian_invader_was_forced_to_record_a_message/)
