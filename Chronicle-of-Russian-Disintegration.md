@@ -733,3 +733,5 @@ I'll add a note . . . no way I'm taking a walk through that memory lane of horro
 
     permalink save parenteditdisable inbox repliesdeletereply"
 
+30 April 2026 [Russian soldiers vs ukrainian drones](https://www.reddit.com/r/UkraineInvasionVideos/comments/1t09eey/russian_soldiers_vs_ukrainian_drones/)
+[Yet another russian invader shot himself in the head after being wounded by an FPV drone. Ukrainian “Black Swan” unit of the 225th Assault Regiment. Published 29.04.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1syw4dz/yet_another_russian_invader_shot_himself_in_the/)
