@@ -735,3 +735,5 @@ I'll add a note . . . no way I'm taking a walk through that memory lane of horro
 
 30 April 2026 [Russian soldiers vs ukrainian drones](https://www.reddit.com/r/UkraineInvasionVideos/comments/1t09eey/russian_soldiers_vs_ukrainian_drones/)
 [Yet another russian invader shot himself in the head after being wounded by an FPV drone. Ukrainian “Black Swan” unit of the 225th Assault Regiment. Published 29.04.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1syw4dz/yet_another_russian_invader_shot_himself_in_the/)
+
+1 May 2026 [(NSFW) Ukraine's Airborne Assault Forces recon drone pilot witnessed a Russian infantryman self-terminate via grenade. [TG @ua_dshv] April 30, 2026](https://www.reddit.com/r/DroneCombat/comments/1t0nb9q/nsfw_ukraines_airborne_assault_forces_recon_drone/)
