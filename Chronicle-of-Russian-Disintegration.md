@@ -742,3 +742,5 @@ I'll add a note . . . no way I'm taking a walk through that memory lane of horro
 [A russian soldier shot himself in the head with an automatic rifle after hearing an approaching FPV drone. Footage from aerial reconnaissance of the 1st Battalion of Unmanned Systems of the 113th Separate Territorial Defense Brigade. Vovchansk direction, Kharkiv region. Published 27.04.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1sygihg/a_russian_soldier_shot_himself_in_the_head_with/)
 
 1 May 2026 [(NSFW) Ukraine's Airborne Assault Forces recon drone pilot witnessed a Russian infantryman self-terminate via grenade. [TG @ua_dshv] April 30, 2026](https://www.reddit.com/r/DroneCombat/comments/1t0nb9q/nsfw_ukraines_airborne_assault_forces_recon_drone/)
+
+3 May 2026 [Yet another wounded russian invader self-terminated with an assault rifle. Published 01.05.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1t28m6c/yet_another_wounded_russian_invader/)
