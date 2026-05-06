@@ -746,5 +746,9 @@ I'll add a note . . . no way I'm taking a walk through that memory lane of horro
 3 May 2026 [Yet another wounded russian invader self-terminated with an assault rifle. Published 01.05.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1t28m6c/yet_another_wounded_russian_invader/)
 
 4 May 2026 [(NSFW) Ukraine's 3rd Army Corps used munition drops and FPV drone strikes to destroy Russian infantry attacks, witnessing multiple enemy infantrymen self-terminate in the process. [TG @ab3army] May 4, 2026](https://www.reddit.com/r/DroneCombat/comments/1t3n5d1/nsfw_ukraines_3rd_army_corps_used_munition_drops/)
+
+6 May 2026 [Yet another russian invader shot himself in the head with his rifle after being wounded by drone-dropped munitions. Ukrainian UAV company “Zli Sapsany” of the 30th Separate Mechanized Brigade. Published 05.05.2026](https://www.reddit.com/r/UkraineInvasionVideos/comments/1t4tmhf/yet_another_russian_invader_shot_himself_in_the/)
+
+
 They are starting to blur together; but that said, I think most or even all of these are ones I have not previously seen nor included in the Chronicle. Things seem progressively bleak for Putin's horde, which is, in fact what many of us have been predicting for some time.
 
