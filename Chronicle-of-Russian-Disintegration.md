@@ -752,3 +752,17 @@ I'll add a note . . . no way I'm taking a walk through that memory lane of horro
 
 They are starting to blur together; but that said, I think most or even all of these are ones I have not previously seen nor included in the Chronicle. Things seem progressively bleak for Putin's horde, which is, in fact what many of us have been predicting for some time.
 
+9 May 2026 [FPV drone hits Russian soldier walking along paved road. Ukraine's 414th Strike UAS Brigade, published 5/9/2026](https://www.reddit.com/r/CombatFootage/comments/1t7xpog/fpv_drone_hits_russian_soldier_walking_along/)
+Exhausted loner limping along exhibiting signs of poor field practice whether from inadequate training, fatigue, deteriorating morale, or simple psychological exhaustion.
+
+Effectively a hobo soldier sent into the death zone for one reason or another (infiltration, logistics, repositioning, etc.) by commanders who almost certainly understand that, if detected by Ukrainian ISR and targeted, his chances of survival are close to zero.
+
+All of the sake of keeping the glacially slow pace of temporary territory seizure "progress." This is what an Ouroboros Army looks like: a rigid top-down directive that defies basic strategic realities: "keep taking territory," even while the process of doing so grows ever slower and more costly.
+
+My latest essay, [Russia’s War of Self-Destruction VII. The “Fed Up” Phase Begins](https://dichebach.substack.com/p/russias-war-of-self-destruction-vii) attempts to synthesize this broader pattern of military, political, and social exhaustion which increasingly appears to have set in motion by late 2023 and now seems likely to continue until either the regime or the Russian military itself enters a phase of systemic breakdown.
+
+The end is not yet near. But perhaps the beginning of the end has finally begun. Putin keeps himself in power just a little longer with each additional life destroyed.
+
+Added to the [Chronicle of Russian Military Disintegration](https://github.com/Diche-Bach/Chronicle-The-Disintegration-of-Russian-Military/blob/main/Chronicle-of-Russian-Disintegration.md).
+
+
