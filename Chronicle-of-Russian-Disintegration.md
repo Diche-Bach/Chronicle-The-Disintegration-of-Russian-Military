@@ -764,5 +764,5 @@ My latest essay, [Russia’s War of Self-Destruction VII. The “Fed Up” Phase
 The end is not yet near. But perhaps the beginning of the end has finally begun. Putin keeps himself in power just a little longer with each additional life destroyed.
 
 Added to the [Chronicle of Russian Military Disintegration](https://github.com/Diche-Bach/Chronicle-The-Disintegration-of-Russian-Military/blob/main/Chronicle-of-Russian-Disintegration.md).
-
+18 May 2026 [[Graphic] The results of a failed suicide attempt by a russian invder who shot himself through the chin. The medic points out brain matter from the exit wound in the forehead while the occupier is still talking.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1tgmdya/graphic_the_results_of_a_failed_suicide_attempt/)
 
