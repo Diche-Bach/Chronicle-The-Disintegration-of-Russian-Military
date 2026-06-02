@@ -768,3 +768,5 @@ Added to the [Chronicle of Russian Military Disintegration](https://github.com/D
 
 31 May 2026 [Ukrainian drone-dropped grenade hits Russian soldier spotted walking through open field. Ukraine's Special Purpose Center Omega, published 5/28/2026.](https://www.reddit.com/r/CombatFootage/comments/1tt2t46/ukrainian_dronedropped_grenade_hits_russian/)
 
+2 June 2026 [0:58 "Look what they sent into assault troops. Holy shit, damn. Grandpa, are we going on the combat mission?" A russian invader is being sent into a meat assault, despite claiming he had a stroke and needs a hospital, while his superior shows no interest in the details.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1tu04wf/look_what_they_sent_into_assault_troops_holy_shit/)
+
