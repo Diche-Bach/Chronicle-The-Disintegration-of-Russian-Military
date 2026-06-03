@@ -770,3 +770,5 @@ Added to the [Chronicle of Russian Military Disintegration](https://github.com/D
 
 2 June 2026 [0:58 "Look what they sent into assault troops. Holy shit, damn. Grandpa, are we going on the combat mission?" A russian invader is being sent into a meat assault, despite claiming he had a stroke and needs a hospital, while his superior shows no interest in the details.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1tu04wf/look_what_they_sent_into_assault_troops_holy_shit/)
 
+3 June 2026 [Russian special team struck by Ukrainian 152nd Separate Jaeger Brigade. Kotlyne direction. Posted 03.06.2026](https://www.reddit.com/r/DroneCombat/comments/1tvynrn/russian_special_team_struck_by_ukrainian_152nd/)
+Including this because clearly if individuals in that physical condition are being sent forward into the death zone as infiltrattors is it indicative of disintegration in force regeneration.
