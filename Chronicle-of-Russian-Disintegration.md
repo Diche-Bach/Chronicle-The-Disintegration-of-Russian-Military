@@ -772,3 +772,6 @@ Added to the [Chronicle of Russian Military Disintegration](https://github.com/D
 
 3 June 2026 [Russian special team struck by Ukrainian 152nd Separate Jaeger Brigade. Kotlyne direction. Posted 03.06.2026](https://www.reddit.com/r/DroneCombat/comments/1tvynrn/russian_special_team_struck_by_ukrainian_152nd/)
 Including this because clearly if individuals in that physical condition are being sent forward into the death zone as infiltrattors is it indicative of disintegration in force regeneration.
+
+6 June 2026 [NSFW/NSFL: Ukrainian drone observed a Russian soldier shooting himself. 71st Jaeger Brigade's Huntsmen Battalion. Sumy direction. Published 06.06.2026](https://www.reddit.com/r/DroneCombat/comments/1tynabj/nsfwnsfl_ukrainian_drone_observed_a_russian/)
+
