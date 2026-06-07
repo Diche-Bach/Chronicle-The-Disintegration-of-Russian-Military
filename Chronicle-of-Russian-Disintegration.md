@@ -775,3 +775,6 @@ Including this because clearly if individuals in that physical condition are bei
 
 6 June 2026 [NSFW/NSFL: Ukrainian drone observed a Russian soldier shooting himself. 71st Jaeger Brigade's Huntsmen Battalion. Sumy direction. Published 06.06.2026](https://www.reddit.com/r/DroneCombat/comments/1tynabj/nsfwnsfl_ukrainian_drone_observed_a_russian/)
 
+7 June 2026 [“So now tell me, what the f*ck do you need this f*cking war for?”](https://www.reddit.com/r/UkraineInvasionVideos/comments/1tywd6h/so_now_tell_me_what_the_fck_do_you_need_this/)
+Based on some comments in the Reddit thread, I'm not sure if this might be an older video, i.e. not from spring 2026. In any event  I've never seen it before. Anywway, given the obvious parallels with 1917 this one definitely is a sign of ongoing disintegration of the horde.
+
