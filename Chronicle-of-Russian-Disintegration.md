@@ -3,15 +3,25 @@
 
 ### Introduction
 
-This chronicle began in June 2025 as a response to a Reddit discussion about whether there was any substantive proof of the degraded state of cohesion, morale, discipline, effectiveness, and solidarity within the Armed Forces of the Russian Federation.
+This chronicle began in June 2025 as a response to a recurring question in online discussions: is there substantive evidence that the Armed Forces of the Russian Federation are experiencing declining cohesion, morale, discipline, effectiveness, and institutional integrity?
 
-There is a large and growing body of videos and reports showing that the Russian military suffers serious and recurring problems with morale, discipline, low operational coherence, systemic medical evacuation failures, and broken command structures, including exploitative commanders who often seem to delight in sadistically abusing their men.
+A growing body of open-source documentation suggests that such problems are both serious and recurring. Videos, photographs, interviews, and reports frequently depict failures of morale, discipline, operational coherence, medical evacuation, logistics, command relationships, and force preservation. They also reveal patterns of abuse, corruption, and exploitation by commanders toward their own personnel.
 
-The entries collected here are not exhaustive. They represent an incomplete fraction of the open-source documentary evidence available online, primarily from Reddit reposts of Telegram footage and related social media sources. Some of the videos date back to 2022, but the bulk are from late 2024 to the present.
+The entries collected here are not exhaustive. They represent only a small fraction of the available open-source material and consist primarily of Reddit posts linking to Telegram footage, news reports, and other social-media sources. While some entries date to 2022, the majority originate from late 2024 onward.
 
-Because this repository originated as an ad hoc response to that Reddit query, it currently lacks features that would enhance usability: consistent commentary beyond raw markup links, systematic tabulation of details like dates, locations, and units involved, and thematic grouping. It is therefore a work in progress.
+Because this repository originated as an ad hoc response to a specific discussion, it presently lacks many features that would improve its utility for research purposes. Entries are not yet systematically categorized by topic, unit, location, or date. Commentary is often limited, and substantial opportunities remain for thematic organization, tabulation, and quantitative analysis.
 
-Contributions are welcome. Readers are encouraged to duplicate or fork this repository, improve the organization, and expand the collection. The ultimate purpose of this Chronicle is to provide a public, educational, and research-friendly archive documenting the observable decline of the Russian military throughout the Russo-Ukrainian War (2014–present).
+A note on methodology is warranted.
+
+The collection process has been remarkably unsystematic. I subscribe to a small number of subreddits focused on the Russo-Ukrainian War and browse them regularly. Most entries were encountered incidentally while doing so. Beyond occasional efforts to recover older material, I have made no attempt to exhaust the available evidence, even within those few communities.
+
+The section titled Early Documentation consists primarily of efforts to reconstruct examples encountered between 2022 and mid-2025. Subsequent sections reflect material encountered after the repository was established.
+
+This limitation is important because it suggests considerable opportunities for future expansion. A researcher employing systematic search methods across Reddit archives, Telegram channels, and related sources could likely increase the volume of relevant documentation many times over. Such expansion might eventually permit not only qualitative illustration, but also meaningful inferential analysis regarding trends within the Russian military over time.
+
+Contributions are welcome. Readers are encouraged to duplicate or fork this repository, improve its organization, verify sources, and expand the collection.
+
+The ultimate purpose of this Chronicle is to provide a public, educational, and research-friendly archive documenting observable indicators of declining cohesion, morale, discipline, effectiveness, and institutional integrity within the Russian military throughout the Russo-Ukrainian War (2014–present).
 
 
 ### Early Documentation
