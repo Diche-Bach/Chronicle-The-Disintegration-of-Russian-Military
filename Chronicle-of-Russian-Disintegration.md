@@ -5,13 +5,13 @@
 
 This chronicle began in June 2025 as a response to a Reddit discussion about whether there was any substantive proof of the degraded state of cohesion, morale, discipline, effectiveness, and solidarity within the Armed Forces of the Russian Federation.
 
-The answer is yes. There is now a vast and growing body of videos and reports showing that the Russian military suffers serious and recurring morale and discipline problems.
+There is a large and growing body of videos and reports showing that the Russian military suffers serious and recurring problems with morale, discipline, low operational coherence, systemic medical evacuation failures, and broken command structures, including exploitative commanders who often seem to delight in sadistically abusing their men.
 
 The entries collected here are not exhaustive. They represent an incomplete fraction of the open-source documentary evidence available online, primarily from Reddit reposts of Telegram footage and related social media sources. Some of the videos date back to 2022, but the bulk are from late 2024 and 2025.
 
 Because this repository originated as an ad hoc response to that Reddit query, it currently lacks features that would enhance usability: consistent commentary beyond raw markup links, systematic tabulation of details like dates, locations, and units involved, and thematic grouping. It is therefore a work in progress.
 
-Contributions are welcome. Readers are encouraged to duplicate or fork this repository, improve the organization, and expand the collection. The ultimate purpose of this Chronicle is to provide a public, educational, and research-friendly archive documenting the observable decline of Russian military cohesion, morale, and discipline throughout the Russo-Ukrainian War (2014–present).
+Contributions are welcome. Readers are encouraged to duplicate or fork this repository, improve the organization, and expand the collection. The ultimate purpose of this Chronicle is to provide a public, educational, and research-friendly archive documenting the observable decline of the Russian military throughout the Russo-Ukrainian War (2014–present).
 
 
 ### Early Documentation
