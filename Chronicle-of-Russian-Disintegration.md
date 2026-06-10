@@ -789,3 +789,10 @@ Including this because clearly if individuals in that physical condition are bei
 Based on some comments in the Reddit thread, I'm not sure if this might be an older video, i.e. not from spring 2026. In any event  I've never seen it before. Anywway, given the obvious parallels with 1917 this one definitely is a sign of ongoing disintegration of the horde.
 
 10 June 2026 [A russian is observed collecting debris from a downed fpv and putting it on at a small fire from the downed drone, only for it to blow up in his face. 63rd Separate Mechanized Brigade](https://www.reddit.com/r/DroneCombat/comments/1u1vs21/a_russian_is_observed_collecting_debris_from_a/)
+Despite the unbelievably stupid behavior involved, I would classify this as “not obviously fake.” Indeed, it seems quite plausible: probably a live remnant from a failed FPV strike drone, triggered by heat, handling, or a damaged electrical/fuze train. Even a Mavic-style recon drone battery could cause serious injury if damaged and heated, but the suddenness and apparent violence of the blast make an actual explosive remnant seem more likely than a simple battery cookoff.
+
+Catastrophic UXO illiteracy under unforgiving battlefield conditions: fatigue, poor training, habituation to danger, and perhaps even fatalistic indifference to risk.
+
+The soldier may not have gotten the memo, but standard guidance on this topic is brutally simple: stay the hell away from anything that might be UXO.
+
+
