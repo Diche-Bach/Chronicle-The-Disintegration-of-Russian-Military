@@ -788,3 +788,4 @@ Including this because clearly if individuals in that physical condition are bei
 7 June 2026 [“So now tell me, what the f*ck do you need this f*cking war for?”](https://www.reddit.com/r/UkraineInvasionVideos/comments/1tywd6h/so_now_tell_me_what_the_fck_do_you_need_this/)
 Based on some comments in the Reddit thread, I'm not sure if this might be an older video, i.e. not from spring 2026. In any event  I've never seen it before. Anywway, given the obvious parallels with 1917 this one definitely is a sign of ongoing disintegration of the horde.
 
+10 June 2026 [A russian is observed collecting debris from a downed fpv and putting it on at a small fire from the downed drone, only for it to blow up in his face. 63rd Separate Mechanized Brigade](https://www.reddit.com/r/DroneCombat/comments/1u1vs21/a_russian_is_observed_collecting_debris_from_a/)
