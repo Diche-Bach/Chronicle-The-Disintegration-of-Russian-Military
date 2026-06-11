@@ -790,9 +790,10 @@ Based on some comments in the Reddit thread, I'm not sure if this might be an ol
 
 10 June 2026 [A russian is observed collecting debris from a downed fpv and putting it on at a small fire from the downed drone, only for it to blow up in his face. 63rd Separate Mechanized Brigade](https://www.reddit.com/r/DroneCombat/comments/1u1vs21/a_russian_is_observed_collecting_debris_from_a/)
 Despite the unbelievably stupid behavior involved, I would classify this as “not obviously fake.” Indeed, it seems quite plausible: probably a live remnant from a failed FPV strike drone, triggered by heat, handling, or a damaged electrical/fuze train. Even a Mavic-style recon drone battery could cause serious injury if damaged and heated, but the suddenness and apparent violence of the blast make an actual explosive remnant seem more likely than a simple battery cookoff.
-
 Catastrophic UXO illiteracy under unforgiving battlefield conditions: fatigue, poor training, habituation to danger, and perhaps even fatalistic indifference to risk.
-
 The soldier may not have gotten the memo, but standard guidance on this topic is brutally simple: stay the hell away from anything that might be UXO.
 
-
+11 June 2026[Ukraine's 414th USF Brigade "Madyar's Birds" targeted a Russian infantryman, who removes his helmet and body armor to facilitate a painless end. The strike raises the brigade's June tally to 2,835. (NSFW) [TG @robert_magyar] June 11, 2026](https://www.reddit.com/r/DroneCombat/comments/1u2jxa9/ukraines_414th_usf_brigade_madyars_birds_targeted/)
+It is certainly true that he has removed his helmet and body armor when the strike occurs. It is also true he seems to be oblivious to the presence of the drone, or else ignoring it as he digs in his sack. If we assume that the claim that he removed the armor to facilitate a painless end traces back all the way to the Ukrainian personnel who collected, editing and distributed the footage then it is certainly consistent with patterns we have observed for literally years: Russian personnel who have lost the will to live, and self-terminate or sit passively to allow a clean strike. This would not be the first time a video has been published which is consistent with that latter interpretation.
+However, because of the intermediary layers through which these videos seem to pass by the time they get posted to Reddit, I think we have to retain at least a vestige of skepticism about the claim. 
+Definitely plausible ... Added to the [Chronicle of Russian Military Disintegration](https://github.com/Diche-Bach/Chronicle-The-Disintegration-of-Russian-Military/blob/main/Chronicle-of-Russian-Disintegration.md)
