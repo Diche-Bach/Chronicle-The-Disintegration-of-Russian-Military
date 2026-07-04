@@ -801,3 +801,13 @@ Definitely plausible ... Added to the [Chronicle of Russian Military Disintegrat
 1 July 2026 I'm sure that at leat one of these is a repeat (the fellow laying on his left side who places a grenade under his left temporal lobe), and possibly more than one. But there are also some new ones in this post it seems. [(NSFW) While repelling Russian infantry attacks, Ukraine's 155th Mechanized Brigade recorded several more "self-terminations" of enemy infantrymen using rifles and grenades - an increasingly common occurrence, according the 155th's post commentary. [TG ombr_155] July 1, 2026](https://www.reddit.com/r/DroneCombat/comments/1ukuwwy/nsfw_while_repelling_russian_infantry_attacks/)
 
 4 July 2026 Seeminlgy not a suicide. But clearly deficient soldiering. Older, but I don't think it is included. [Russian soldier throws RPG launcher at disabled FPV drone, accidentally killing himself (Avdiivka outskirts, 2024)](https://www.reddit.com/r/CombatFootage/comments/1umukad/russian_soldier_throws_rpg_launcher_at_disabled/)
+
+This [the following video] is so unbelievably incompetent its like a Monty Python script. The hand signals, gestures and gaze of the spotter guy after the successful defusing of the bomb are what really push it over the edge into peak black comedy.
+Walks up from a safe distance carrying a weapon. Walks around so he can see buddies front side ... buddy who is laying almost motionless except for the slight shudders of death rattle.
+Looks at buddy bomb-defuser intently for a second, as if to determine, "You alright or ... oh, no I guess not okay at all ..."
+Having appraised the situation, begins to walk back where he came from.
+Spotter guy then gazes at the camera as he continues to walk away and gives the "whirly bird finger," universal symbol for "UXO cleared! Wrap it up!"
+Then adds the crossed arms: "UXO is toast, no more threat here!"
+The final flourish points at his downed assistant as if to ask "did you get that on camera? We'll need this for the training videos ..."
+One thing I do wonder about: he's clearly gesturing toward the camera. Was he expecting a friendly Russian ISR drone to be watching? If so, that raises an interesting question about how this footage ultimately reached Ukraine—but that's speculation without additional evidence.
+[A Russian soldier, still wearing his civvies from last night, attempts to manually diffuse a Ukrainian fibre-optic FPV drone on one of the roads in the Zaporizhzhia Oblast.](https://www.reddit.com/r/CombatFootage/comments/1un9asb/a_russian_soldier_still_wearing_his_civvies_from/)
