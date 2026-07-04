@@ -800,4 +800,4 @@ Definitely plausible ... Added to the [Chronicle of Russian Military Disintegrat
 
 1 July 2026 I'm sure that at leat one of these is a repeat (the fellow laying on his left side who places a grenade under his left temporal lobe), and possibly more than one. But there are also some new ones in this post it seems. [(NSFW) While repelling Russian infantry attacks, Ukraine's 155th Mechanized Brigade recorded several more "self-terminations" of enemy infantrymen using rifles and grenades - an increasingly common occurrence, according the 155th's post commentary. [TG ombr_155] July 1, 2026](https://www.reddit.com/r/DroneCombat/comments/1ukuwwy/nsfw_while_repelling_russian_infantry_attacks/)
 
-
+4 July 2026 Seeminlgy not a suicide. But clearly deficient soldiering. Older, but I don't think it is included. [Russian soldier throws RPG launcher at disabled FPV drone, accidentally killing himself (Avdiivka outskirts, 2024)](https://www.reddit.com/r/CombatFootage/comments/1umukad/russian_soldier_throws_rpg_launcher_at_disabled/)
