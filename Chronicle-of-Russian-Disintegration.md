@@ -813,3 +813,6 @@ One thing I do wonder about: he's clearly gesturing toward the camera. Was he ex
 [A Russian soldier, still wearing his civvies from last night, attempts to manually diffuse a Ukrainian fibre-optic FPV drone on one of the roads in the Zaporizhzhia Oblast.](https://www.reddit.com/r/CombatFootage/comments/1un9asb/a_russian_soldier_still_wearing_his_civvies_from/)
 
 6 July 2026 [“They offered me a contract, but I refused, and they shoved a stick up my ass. In the end, I signed a contract for the SMO.” Footage of a russian invader, first in a pit as punishment by his superior after attempting to desert, and in a short interview after he was captured by the Ukrainian forces.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1uofi8h/they_offered_me_a_contract_but_i_refused_and_they/)
+
+23 July 2026. Clearly at least several months old but I do not recall it having been documented before: [Russian Soilder hears Ukrainian Drone, decides take himself out before drone. Fpv drone explodes right above him. Kurakhove direction. February 2025](https://www.reddit.com/r/CombatFootage/comments/1v3u8s0/russian_soilder_hears_ukrainian_drone_decides/)
+
