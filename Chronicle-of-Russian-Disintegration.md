@@ -816,3 +816,5 @@ One thing I do wonder about: he's clearly gesturing toward the camera. Was he ex
 
 23 July 2026. Clearly at least several months old but I do not recall it having been documented before: [Russian Soilder hears Ukrainian Drone, decides take himself out before drone. Fpv drone explodes right above him. Kurakhove direction. February 2025](https://www.reddit.com/r/CombatFootage/comments/1v3u8s0/russian_soilder_hears_ukrainian_drone_decides/)
 
+14 August 2026 Effectively an aftermath video, but assuming the description of the individuals identity is accurate it is reflective of the impact of the war [A russian “SMO” soldier has a PTSD episode, screaming that he is “going to die” while begging for help.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1vo308h/a_russian_smo_soldier_has_a_ptsd_episode/)
+
