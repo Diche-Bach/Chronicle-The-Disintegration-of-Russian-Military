@@ -818,3 +818,10 @@ One thing I do wonder about: he's clearly gesturing toward the camera. Was he ex
 
 14 August 2026 Effectively an aftermath video, but assuming the description of the individuals identity is accurate it is reflective of the impact of the war [A russian “SMO” soldier has a PTSD episode, screaming that he is “going to die” while begging for help.](https://www.reddit.com/r/UkraineInvasionVideos/comments/1vo308h/a_russian_smo_soldier_has_a_ptsd_episode/)
 
+29 Sept 2026 [“You don't have enough fuel? You decided to complain! You'll fucking refuel at your own expense. Fa**ots!” A russian invader beat two of his fellow servicemen who wrote a complaint about the lack of fuel within the unit.](https://www.reddit.com/r/FreedomofRussia/comments/1wt6p68/you_dont_have_enough_fuel_you_decided_to_complain/)
+Been an entire month since one of these 'Sadistic Russian Command Culture' videos appeared in my feed.
+
+Hate to see torture of any living thing, but in some sense it is reassuring that the horde is still as rotten and dysfunctional as ever. Not that I ever imagined that a family of institutions that are THAT putrescent would ever manage reform short of societal cataclysm approaching civil war ...
+
+There is no way in HELL that this organization is going to "win" against Ukraine, and increasingly the signs indicate that they may well "lose" spectacularly.
+
