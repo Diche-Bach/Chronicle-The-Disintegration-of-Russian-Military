@@ -825,6 +825,7 @@ Hate to see torture of any living thing, but in some sense it is reassuring that
 
 There is no way in HELL that this organization is going to "win" against Ukraine, and increasingly the signs indicate that they may well "lose" spectacularly.
 
+21 Oct 2026
 [[NSFW] Two Russian soldiers turn rifles on themselves in the Vovchansk direction. Oct. 20, 2026](https://www.reddit.com/r/DroneCombat/comments/1xbipwt/nsfw_two_russian_soldiers_turn_rifles_on/)
 
 [[NSFW] Russian soldier pulls pin on own grenade for a dramatic exit. (UA 7th Rapid Response Corps) Oct. 20, 2026](https://www.reddit.com/r/DroneCombat/comments/1xbjjr4/nsfw_russian_soldier_pulls_pin_on_own_grenade_for/)
