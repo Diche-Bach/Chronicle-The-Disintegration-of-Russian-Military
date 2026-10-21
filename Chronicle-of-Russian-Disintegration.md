@@ -825,3 +825,4 @@ Hate to see torture of any living thing, but in some sense it is reassuring that
 
 There is no way in HELL that this organization is going to "win" against Ukraine, and increasingly the signs indicate that they may well "lose" spectacularly.
 
+[[NSFW] Two Russian soldiers turn rifles on themselves in the Vovchansk direction. Oct. 20, 2026](https://www.reddit.com/r/DroneCombat/comments/1xbipwt/nsfw_two_russian_soldiers_turn_rifles_on/)
