@@ -829,3 +829,6 @@ There is no way in HELL that this organization is going to "win" against Ukraine
 [[NSFW] Two Russian soldiers turn rifles on themselves in the Vovchansk direction. Oct. 20, 2026](https://www.reddit.com/r/DroneCombat/comments/1xbipwt/nsfw_two_russian_soldiers_turn_rifles_on/)
 
 [[NSFW] Russian soldier pulls pin on own grenade for a dramatic exit. (UA 7th Rapid Response Corps) Oct. 20, 2026](https://www.reddit.com/r/DroneCombat/comments/1xbjjr4/nsfw_russian_soldier_pulls_pin_on_own_grenade_for/)
+
+21 Oct 2026
+[Recruitment brutality in Omsk. Video from inside the "Sirius 55" recruitment center shows how the staff treat their "volunteers." Also stories of beatings and kidnappings by recruiters to supply more meat for the front](https://www.reddit.com/r/gato/comments/1xc2c1i/recruitment_brutality_in_omsk_video_from_inside/)
