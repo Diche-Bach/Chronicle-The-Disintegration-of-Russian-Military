@@ -835,3 +835,6 @@ There is no way in HELL that this organization is going to "win" against Ukraine
 
 24 Oct 2026
 [[NSFW] Ukrainian drone pilot observes Russian soldier turning rifle on himself. Oct. 24, 2026](https://www.reddit.com/r/DroneCombat/comments/1xekeg0/nsfw_ukrainian_drone_pilot_observes_russian/)
+
+1 Nov 2026
+[Ukrainian drone pilot patiently watches Russian soldier curl up with a grenade. (Oct. 27, 2026)](https://www.reddit.com/r/DroneCombat/comments/1xld6jf/nsfw_ukrainian_drone_pilot_patiently_watches/)
