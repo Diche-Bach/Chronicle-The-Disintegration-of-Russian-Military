@@ -838,3 +838,6 @@ There is no way in HELL that this organization is going to "win" against Ukraine
 
 1 Nov 2026
 [Ukrainian drone pilot patiently watches Russian soldier curl up with a grenade. (Oct. 27, 2026)](https://www.reddit.com/r/DroneCombat/comments/1xld6jf/nsfw_ukrainian_drone_pilot_patiently_watches/)
+
+9 Nov 2026
+[Drone operators of "Code 9.2" battalion film a russian stepping on a mine, he is badly wounded and a fellow russian comes to check on him, after fidling with his gun for a moment he shots his comrade with a mercy shot](https://www.reddit.com/r/DroneCombat/comments/1xrsh4s/drone_operators_of_code_92_battalion_film_a/)
