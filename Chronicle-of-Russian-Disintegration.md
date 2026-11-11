@@ -841,3 +841,6 @@ There is no way in HELL that this organization is going to "win" against Ukraine
 
 9 Nov 2026
 [Drone operators of "Code 9.2" battalion film a russian stepping on a mine, he is badly wounded and a fellow russian comes to check on him, after fidling with his gun for a moment he shots his comrade with a mercy shot](https://www.reddit.com/r/DroneCombat/comments/1xrsh4s/drone_operators_of_code_92_battalion_film_a/)
+
+11 Nov 2026
+[A Russian Soldier Commits suicide with a grenade after sustaining injuries and realizing no medevac was coming. 05/28/2024](https://www.reddit.com/r/CombatFootage/comments/1xt7em1/a_russian_soldier_commits_suicide_with_a_grenade/)
